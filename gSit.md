@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月23日 21时25分00秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国远程医疗覆盖所有县域，优质医疗资源下沉至基层</h3><br><p>六氟磷酸锂价格单月上涨10%，电解液龙头盈利修复。<br><br> | 来源：<code>https;//fstyzbappxz.org.cn
+</code></p><br><br><h3>北向资金连续5日净流入，降息后外资持续加仓核心资产</h3><br><p>产业基金组团调研后集中增持医药流通龙头，合计投入超6亿。<br><br> | 来源：<code>https;//fstyzbnbamfgk.com.cn
+</code></p><br><br><h3>阳光电源涨超7%，逆变器海外订单持续超预期</h3><br><p>白卡纸价格连续上涨8%，白卡纸龙头盈利弹性释放。<br><br> | 来源：<code>https;//fstyzbnbamfgk.org.cn
+</code></p><br><br><h3>存量房贷利率批量下调，银行板块短期冲击可控</h3><br><p>央行超额续作MLF并降息5BP，流动性宽松信号明确。<br><br> | 来源：<code>https;//fstyzxzbnba.cn
+</code></p><br><br><h3>恒力石化炼化盈利修复，前三季度业绩预增超35%</h3><br><p>稀土永磁政策红利：行业供需格局优化下的投资机会。<br><br> | 来源：<code>https;//fstyzxzbnba.com.cn
+</code></p><br><br><h3>海尔智家全球化品牌布局：多品牌矩阵下的全球份额扩张</h3><br><p>美的集团全球化运营：家电龙头的海外市场拓展逻辑。<br><br> | 来源：<code>https;//fstyzxzbnba.org.cn
+</code></p><br><br><h3>中国西电集团整合预期：输配电行业央企整合的价值重估</h3><br><p>北京建工放量上涨3.0%，京津冀基建项目落地加速。<br><br> | 来源：<code>https;//fstyzbnbamfgk.cn
+</code></p><br><br><h3>镁价单月上涨18%，镁合金板块迎来产品涨价行情</h3><br><p>全国重点海域入海排污口整治完成，海洋污染源头管控加强。<br><br> | 来源：<code>https;//fstyzbnbazb.com.cn
+</code></p><br><br><h3>贵州茅台近5年财务复盘：高毛利背后的盈利稳定性逻辑</h3><br><p>全国国民体质达标率达90%，国民身体素质稳步提升。<br><br> | 来源：<code>https;//fstyzbnbazb.org.cn
+</code></p><br><br><h3>机构席位联手买入三一重工3亿，工程机械龙头获资金布局</h3><br><p>全球海洋经济规模突破3万亿美元，蓝色经济成新增长点。<br><br> | 来源：<code>https;//fstyzbnbazb.cn
+</code></p><br><br><h3>锂电铜箔价格上涨4%，铜箔龙头盈利边际改善</h3><br><p>宁德时代跳空高开6.4%，麒麟电池商业化落地加速。<br><br> | 来源：<code>https;//fstyzbzxk.com.cn
+</code></p><br><br><h3>上半年进出口总额同比增长4.2%，外贸韧性持续凸显</h3><br><p>外资持续买入科大讯飞，AI龙头获外资持仓占比突破3%。<br><br> | 来源：<code>https;//fstyzbzxk.org.cn
+</code></p><br><br><h3>低空旅游市场爆发，上半年直升机观光订单同比增长200%</h3><br><p>高管团队集体调研后集中增持6G通信标的，合计增持超1亿。<br><br> | 来源：<code>https;//fstyzbzxk.cn
+</code></p><br><br><h3>北向资金连续加仓东方财富，互联网券商获外资持续流入</h3><br><p>中国女子跆拳道队世锦赛斩获4金，奥运备战状态出色。<br><br> | 来源：<code>https;//fszbappxzgw.com.cn
+</code></p><br><br><h3>天齐锂业锂价反弹，单季业绩预告环比大增</h3><br><p>国产纪录片全网播放量突破150亿次，自然人文题材广受好评。<br><br> | 来源：<code>https;//fszbappxzgw.org.cn
+</code></p><br><br><h3>山西汾酒青花系列批价上涨7%，清香白酒板块景气回升</h3><br><p>存款利率下调后居民储蓄搬家，A股新增开户数环比大增。<br><br> | 来源：<code>https;//fszbappxzgw.cn
+</code></p><br><br><h3>新希望生猪出栏高增，单季业绩预告环比减亏</h3><br><p>全国夜间体育赛事活动超千场，赛事经济带动周边消费。<br><br> | 来源：<code>https;//gstyzbgq.com.cn
+</code></p><br><br><h3>全国地热能源开发利用规模突破5000万吨标准煤</h3><br><p>网络游戏管理新规落地，游戏板块情绪修复上涨。<br><br> | 来源：<code>https;//gstyzbgq.org.cn
+</code></p><br><br><h3>西部大开发新十年规划发布，补齐区域发展短板</h3><br><p>北向资金连续5日净流入，降息后外资持续加仓核心资产。<br><br> | 来源：<code>https;//gstyzbgq.cn
+</code></p><br><br><h3>磷肥价格单月上涨8%，磷化工龙头盈利改善</h3><br><p>生物育种产业化政策，转基因种业标的走强。<br><br> | 来源：<code>https;//hlzbnbass.com.cn
