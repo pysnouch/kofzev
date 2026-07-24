@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分13秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>美欧贸易谈判达成协议，解决钢铁铝关税争端</h3><br><p>上半年全国医药制造业利润同比增长13%，创新药贡献突出。<br><br> | 来源：<code>https://hongtaoshipinzaixianguankan.com.cn
+</code></p><br><br><h3>拓普集团护城河分析：汽车零部件平台型企业的长期价值</h3><br><p>全国篮球联赛NBL总决赛落幕，陕西队时隔5年再度夺冠。<br><br> | 来源：<code>https://hongtaowang.com.cn
+</code></p><br><br><h3>中芯国际行业格局分析：半导体制造国产替代的核心路径</h3><br><p>社保基金新进生物育种标的，布局农业科技长期成长。<br><br> | 来源：<code>https://hongtaoyingshidaquangaoqingoumeiju.com.cn
+</code></p><br><br><h3>江铃汽车新能源轻卡高增，单季业绩预告超预期</h3><br><p>汽车下乡补贴政策出台，自主车企标的全线上涨。<br><br> | 来源：<code>https://hongtaoyingshizaixianguankan.com.cn
+</code></p><br><br><h3>实控人承诺12个月内不减持智慧矿山标的，稳定市场预期</h3><br><p>山西路桥放量上涨3.2%，山西交通基建投资加码。<br><br> | 来源：<code>https://hq-bd-tiyu.com.cn
+</code></p><br><br><h3>美联储宣布降息50BP超市场预期，全球风险资产暴涨</h3><br><p>上半年全国铁路固定资产投资完成4500亿元，基建稳步推进。<br><br> | 来源：<code>https://hq-bw-tiyu.com.cn
+</code></p><br><br><h3>吉林高速异动拉升1.7%，区域路网业务逐步复苏</h3><br><p>电池片价格小幅上调3%，光伏产业链盈利分配优化。<br><br> | 来源：<code>https://hq-ff-tiyu.com.cn
+</code></p><br><br><h3>机构席位联手买入三一重工3亿，工程机械龙头获资金布局</h3><br><p>全国珠江流域生态补水工程启动，流域生态流量保障达标。<br><br> | 来源：<code>https://hq-lebeijing-sports.com.cn
+</code></p><br><br><h3>锦浪科技逆变器出口翻倍，前三季度业绩预增超90%</h3><br><p>风电并网消纳政策优化，风电运营板块全线走强。<br><br> | 来源：<code>https://hq-pingbo-sports.com.cn
+</code></p><br><br><h3>游资顶级席位打板沃森生物9800万，疫苗标的获热炒</h3><br><p>全国野生东北豹种群数量突破100只，生物链完整性恢复。<br><br> | 来源：<code>https://hq-shaba-tiyu.com.cn
+</code></p><br><br><h3>车规级芯片国产替代加速，汽车半导体板块走强</h3><br><p>知名私募大手笔增持数字人民币标的，持仓占比突破3%。<br><br> | 来源：<code>https://hth-official-vip.com.cn
+</code></p><br><br><h3>粤港澳大湾区政策升级，湾区地产基建标的走强</h3><br><p>国内文创产品市场规模破千亿，故宫文创年营收超20亿。<br><br> | 来源：<code>https://https17ccom.com.cn
+</code></p><br><br><h3>民宿行业合规化推进，全国星级民宿数量突破2万家</h3><br><p>紫金矿业资源储备优势：黄金铜价上行周期的业绩弹性。<br><br> | 来源：<code>https://httpswww91com.cn
+</code></p><br><br><h3>长电科技放量上涨4.8%，先进封装订单饱满</h3><br><p>北向资金连续加仓通威股份，光伏龙头获外资长线布局。<br><br> | 来源：<code>https://httpwww17ccom.com.cn
+</code></p><br><br><h3>全国家电以旧换新政策落地，回收拆解绿色化率达100%</h3><br><p>全国野生东北豹种群数量突破100只，生物链完整性恢复。<br><br> | 来源：<code>https://huan-qi-yi-zu.com.cn
+</code></p><br><br><h3>汽车大模型落地智能座舱，语音交互响应速度低于1秒</h3><br><p>QFII大幅加仓光伏支架标的，跟踪支架海外渗透率提升获看好。<br><br> | 来源：<code>https://huang-mantiantang.com.cn
+</code></p><br><br><h3>体育产业消费刺激政策，体育消费标的全线异动</h3><br><p>降准资金定向支持绿色能源，光伏风电板块获流动性利好。<br><br> | 来源：<code>https://huang-you.com.cn
+</code></p><br><br><h3>比亚迪Q3销量破百万，业绩预告同比翻倍</h3><br><p>航发动力技术壁垒：航空发动机国产替代的核心路径。<br><br> | 来源：<code>https://huanggua-shipin-app.com.cn
+</code></p><br><br><h3>超170家机构到访PCB龙头，AI服务器板订单同比翻倍</h3><br><p>保险资管扎堆调研航空发动机标的，量产交付进度引关注。<br><br> | 来源：<code>https://huanggua-shipin.com.cn
+</code></p><br><br><h3>蔚来汽车放量上涨8.8%，换电网络覆盖持续扩大</h3><br><p>头部机构组团到访核电设备龙头，新机组中标订单披露。<br><br> | 来源：<code>https://huanggua-wangzhan.com.cn
