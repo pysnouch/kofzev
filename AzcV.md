@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分26秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>调味品行业标准升级，调味品龙头板块走强</h3><br><p>北方稀土稀土全产业链布局：国内稀土龙头的政策红利。<br><br> | 来源：<code>https://new-milesports.com.cn
+</code></p><br><br><h3>全球农业科技市场规模突破3000亿美元，智慧农业普及</h3><br><p>全国旅游志愿服务队伍超百万，提升游客出行体验。<br><br> | 来源：<code>https://new-mimijiaoxue.com.cn
+</code></p><br><br><h3>天合光能放量上涨5.5%，N型组件渗透率持续提升</h3><br><p>国内低空文旅项目升温，热气球、滑翔伞体验订单同比暴涨。<br><br> | 来源：<code>https://new-mitaochuanmei.com.cn
+</code></p><br><br><h3>主线行情里不要轻易切换赛道：拿住核心标的才能吃到大行情</h3><br><p>招商银行沿20日均线上行，稳健标的的持仓节奏。<br><br> | 来源：<code>https://new-mitaoshipin.com.cn
+</code></p><br><br><h3>贵州茅台品牌价值深度解析：白酒龙头的定价权逻辑</h3><br><p>全国博物馆暑期接待人次破2亿，研学游订单同比翻倍。<br><br> | 来源：<code>https://new-mitaoyingshi.com.cn
+</code></p><br><br><h3>全球元宇宙相关产业规模突破2万亿美元，应用场景拓展</h3><br><p>中兴通讯通信技术积累：6G时代的核心竞争力展望。<br><br> | 来源：<code>https://new-mitaozaixian.com.cn
+</code></p><br><br><h3>全国体育场馆免费或低收费开放，年接待群众超10亿人次</h3><br><p>数字人民币试点扩容，数字人民币产业链走强。<br><br> | 来源：<code>https://new-mogu.com.cn
+</code></p><br><br><h3>全国乡村旅游重点村暑期接待人次破1亿，民宿入住率超95%</h3><br><p>中国赛艇队奥运会夺得2金，水上项目实现历史性跨越。<br><br> | 来源：<code>https://new-mogushipin.com.cn
+</code></p><br><br><h3>央行表态保持流动性合理充裕，后续政策工具储备充足</h3><br><p>五粮液品牌价值分析：浓香型白酒龙头的估值逻辑。<br><br> | 来源：<code>https://new-moguyingshi.com.cn
+</code></p><br><br><h3>全国游泳冠军赛落幕，多名小将打破全国纪录</h3><br><p>存量房贷利率批量下调，银行板块短期冲击可控。<br><br> | 来源：<code>https://new-muguashipin.com.cn
+</code></p><br><br><h3>华友钴业全产业链布局：新能源金属的全球龙头成长路径</h3><br><p>人民币国际化进程加速，跨境贸易人民币结算占比提升至38%。<br><br> | 来源：<code>https://new-nantongwang.com.cn
+</code></p><br><br><h3>美联储降息后美债收益率下行，外资回流中国权益市场</h3><br><p>极端高温天气来袭，电力运营板块集体拉升。<br><br> | 来源：<code>https://new-nencaoyingyuan.com.cn
+</code></p><br><br><h3>中国神华创阶段新高2.8%，高股息属性持续获资金追捧</h3><br><p>派能科技海外认证优势：户用储能产品的全球准入壁垒。<br><br> | 来源：<code>https://new-pipiyingyuan.com.cn
+</code></p><br><br><h3>外资单日扫货海尔智家8亿，白电龙头外资持仓稳步提升</h3><br><p>中澳关系持续回暖，双边贸易额同比增长12%。<br><br> | 来源：<code>https://new-sky-sports.com.cn
+</code></p><br><br><h3>科大讯飞AI技术落地：从技术研发到商业化变现的拐点</h3><br><p>宠物食品企业开启新股申购，海外自主品牌占比突破40%。<br><br> | 来源：<code>https://new-tangxin.com.cn
+</code></p><br><br><h3>全国急救培训覆盖超亿人次，公共场所AED设备配置率达90%</h3><br><p>全国美术馆年展览超2万场，艺术惠民覆盖千万群众。<br><br> | 来源：<code>https://new-tiantiandongman.com.cn
+</code></p><br><br><h3>企业中长期贷款利率创历史新低，制造业资本开支回升</h3><br><p>先导智能技术积累：锂电设备全球龙头的核心竞争力。<br><br> | 来源：<code>https://new-wang.com.cn
+</code></p><br><br><h3>尾矿资源综合利用政策，尾矿回收板块走强</h3><br><p>创新器械企业登陆港股，核心管线海外FDA获批引资金追捧。<br><br> | 来源：<code>https://new-wuyeyingyuan.com.cn
+</code></p><br><br><h3>全国生物多样性观测网络建成，覆盖超3000个生态点位</h3><br><p>阳光电源海外逆变器爆发，前三季度业绩预增110%。<br><br> | 来源：<code>https://new-xiangjiaoshipin.com.cn
+</code></p><br><br><h3>海参价格单月上涨18%，海产养殖龙头盈利提升</h3><br><p>财政部新增专项债限额1.5万亿元，重点支持基建项目建设。<br><br> | 来源：<code>https://new-xingfubao.cn
