@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分11秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>小米小爱大模型升级，全场景智能互联覆盖亿级设备</h3><br><p>中国跳水队世锦赛包揽全部金牌，梦之队零失误完美收官。<br><br> | 来源：<code>https://kaiyun-esports-hq.com.cn
+</code></p><br><br><h3>上汽集团海外市场布局：传统车企出口的长期增长逻辑</h3><br><p>腾讯混元大模型企业服务升级，助力政务、金融行业数字化。<br><br> | 来源：<code>https://kaiyun-football-go.com.cn
+</code></p><br><br><h3>2026年全球经济增速达3.2%，实现温和复苏稳步增长</h3><br><p>三元正极材料价格上调6%，锂电材料产业链景气回升。<br><br> | 来源：<code>https://kaiyun-login-pro.com.cn
+</code></p><br><br><h3>研学旅行扶持政策，教育旅游板块集体上涨</h3><br><p>东方盛虹EVA树脂优势：光伏胶膜原料龙头的景气受益。<br><br> | 来源：<code>https://kaiyun-official-go.com.cn
+</code></p><br><br><h3>比亚迪垂直整合优势：供应链自主可控下的抗风险能力</h3><br><p>高管团队集体增持低空飞行器标的，合计增持超7000万。<br><br> | 来源：<code>https://kaiyun-official-pro.com.cn
+</code></p><br><br><h3>全国城镇调查失业率降至4.8%，就业形势保持总体稳定</h3><br><p>中国轮滑队世锦赛包揽全部金牌，优势项目持续领跑世界。<br><br> | 来源：<code>https://kaiyun-plat-vip.com.cn
+</code></p><br><br><h3>全国野生东北豹种群数量突破100只，生物链完整性恢复</h3><br><p>美欧贸易谈判达成协议，解决钢铁铝关税争端。<br><br> | 来源：<code>https://kaiyun-qipai-go.com.cn
+</code></p><br><br><h3>主题乐园暑期游客量突破1亿人次，IP衍生消费持续增长</h3><br><p>隆基绿能成本优势解析：光伏龙头如何持续领跑行业。<br><br> | 来源：<code>https://kaiyun-site-go.com.cn
+</code></p><br><br><h3>全国社会体育指导员超300万人，指导群众科学健身</h3><br><p>鸡肉价格单月上涨15%，白羽鸡板块盈利弹性释放。<br><br> | 来源：<code>https://kaiyun-sports-auth.com.cn
+</code></p><br><br><h3>上海建工城市更新布局：上海本地基建龙头的区域优势</h3><br><p>保险资管扎堆调研绿电运营标的，电价弹性空间引热议。<br><br> | 来源：<code>https://kaiyun-sports-hq.com.cn
+</code></p><br><br><h3>美联储降息周期开启，北向资金持续流入核心资产</h3><br><p>全国乡村旅游重点村超千家，带动千万农民家门口就业。<br><br> | 来源：<code>https://kaiyun-sports-net.com.cn
+</code></p><br><br><h3>芯片价格开启涨价潮，半导体板块盈利迎来修复</h3><br><p>超210家机构到访AI安防龙头，海外政府订单同比大增。<br><br> | 来源：<code>https://kaiyun-sports-official.com
+</code></p><br><br><h3>全国古籍保护工程完成，超3000万册古籍得到妥善修复</h3><br><p>中韩经贸合作升级，双边自贸协定第二阶段谈判完成。<br><br> | 来源：<code>https://kaiyun-sports-plat.com.cn
+</code></p><br><br><h3>头部券商到访调味品龙头，渠道库存去化周期数据披露</h3><br><p>地方国资战略入股氢能燃料电池标的，助力商用车推广落地。<br><br> | 来源：<code>https://kaiyun-tiyu-go.com.cn
+</code></p><br><br><h3>全国居民储蓄存款增速放缓，资金向消费和投资领域转移</h3><br><p>定向降准支持县域金融机构，乡村振兴板块迎来利好。<br><br> | 来源：<code>https://kaiyun-tiyu-hq.com.cn
+</code></p><br><br><h3>三一重工放量上涨，工程机械行业景气度边际改善</h3><br><p>央行下调再贷款利率，精准支持科技创新领域。<br><br> | 来源：<code>https://kaiyun-tiyu-pro.com.cn
+</code></p><br><br><h3>上半年全国居民消费支出同比增长7.3%，服务消费占比提升</h3><br><p>中航沈飞军机交付逻辑：军工整机龙头的长期成长空间。<br><br> | 来源：<code>https://kaiyun-url-vip.com.cn
+</code></p><br><br><h3>全国大学生就业帮扶行动启动，国企新增岗位超80万</h3><br><p>五粮液重回160元，消费板块复苏逻辑逐步验证。<br><br> | 来源：<code>https://kaiyuncom-vip.com.cn
+</code></p><br><br><h3>派能科技户用储能电池技术：全球户用储能龙头的壁垒</h3><br><p>中俄双边贸易额上半年突破1200亿美元，创历史新高。<br><br> | 来源：<code>https://kaiyunqiumi.com.cn
+</code></p><br><br><h3>全国PM2.5平均浓度同比下降8%，空气质量优良天数比率达87.5%</h3><br><p>中国水球队世锦赛闯入八强，水上集体项目进步显著。<br><br> | 来源：<code>https://kan-pian-wangzhan.com.cn
