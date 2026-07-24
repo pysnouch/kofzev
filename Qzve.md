@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时23分02秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>存款利率迎来新一轮下调，银行板块短期承压负债端改善</h3><br><p>北向资金连续5日加仓贵州茅台，持仓占比创历史新高。<br><br> | 来源：<code>www.tlgsb.cn
+</code></p><br><br><h3>露营经济持续升温，全国露营地数量突破4万个</h3><br><p>全国智慧健身器材普及至社区，运动数据实时上传健康平台。<br><br> | 来源：<code>www.btnrl.com
+</code></p><br><br><h3>中国女排世界联赛总决赛夺冠，重返世界第一排名</h3><br><p>海外对冲基金组团调研预制菜龙头，B端渠道扩张节奏披露。<br><br> | 来源：<code>www.le-service-divin.com
+</code></p><br><br><h3>海外对冲基金组团调研白酒区域龙头，省外扩张增速曝光</h3><br><p>外资准入政策放宽，外资偏好标的全线拉升。<br><br> | 来源：<code>www.zzwtest.com
+</code></p><br><br><h3>工业互联网平台落地，工业数字化标的全线拉升</h3><br><p>河北建工涨超2.7%，雄安新区基建订单饱满。<br><br> | 来源：<code>www.cztxwl.cn
+</code></p><br><br><h3>阳光电源技术迭代能力：逆变器龙头的全球竞争力</h3><br><p>风控永远放在第一位：先保住本金，再谈盈利空间。<br><br> | 来源：<code>www.zzlxgg.com.cn
+</code></p><br><br><h3>中国平安综合金融版图：保险龙头的转型进展与空间</h3><br><p>动力电池级碳酸锂报价单日上涨2000元/吨，产业链回暖信号显现。<br><br> | 来源：<code>www.archicourse.cn
+</code></p><br><br><h3>杀菌剂价格上调10%，农药细分板块迎来行情</h3><br><p>中国射箭队世锦赛打破世界纪录，首次夺得团体金牌。<br><br> | 来源：<code>www.geeksuper.cn
+</code></p><br><br><h3>国产综艺节目海外版权输出量同比增长60%</h3><br><p>5年期LPR下调带动地产链估值修复，家居家电板块集体上涨。<br><br> | 来源：<code>www.husini.cn
+</code></p><br><br><h3>中国女子摔跤队世锦赛斩获3金，奥运备战实力强劲</h3><br><p>教育改革与人才发展（100条）。<br><br> | 来源：<code>www.ousche.cn
+</code></p><br><br><h3>中非合作论坛新举措落地，千个合作项目集中启动</h3><br><p>全国地热能源开发利用规模突破5000万吨标准煤。<br><br> | 来源：<code>www.cnjinrong.cn
+</code></p><br><br><h3>降准释放长期资金支持新能源，绿电板块迎来定向利好</h3><br><p>中印经贸合作回暖，双边贸易额同比增长15%。<br><br> | 来源：<code>www.edu633.cn
+</code></p><br><br><h3>全球5G用户突破30亿，中国市场占比超一半</h3><br><p>全国街舞联赛覆盖百城，街舞爱好者规模破千万。<br><br> | 来源：<code>www.60gm.cn
+</code></p><br><br><h3>抽水蓄能电站规划，抽水蓄能板块走强</h3><br><p>工业互联网平台落地，工业数字化标的全线拉升。<br><br> | 来源：<code>www.car12580.cn
+</code></p><br><br><h3>瑞典经济走出负增长，科技产业拉动复苏</h3><br><p>大模型在铁路领域应用，调度系统安全性和效率双提升。<br><br> | 来源：<code>www.gdlyh.cn
+</code></p><br><br><h3>控股股东耗资2.8亿增持创新药龙头，核心管线临床进展获信心</h3><br><p>超250家机构到访AI大模型企业，ToB付费转化率超预期。<br><br> | 来源：<code>www.feiyiban.cn
+</code></p><br><br><h3>房贷利率下限进一步放宽，刚需购房成本大幅下降</h3><br><p>美伊冲突出现缓和信号，双方开启间接谈判寻求停火路径。<br><br> | 来源：<code>www.zygxlt.com
+</code></p><br><br><h3>桂林山水暑期游热度回升，漓江游船日均发船超200艘</h3><br><p>北向资金大额扫货万华化学1.3亿，化工龙头获外资流入。<br><br> | 来源：<code>www.xiangleiboy.com
+</code></p><br><br><h3>机构资金联手买入晶澳科技7600万，组件龙头获机构抱团</h3><br><p>全国绿色电力消费占比达28%，工业绿电使用比例大幅提升。<br><br> | 来源：<code>www.cameey.com
+</code></p><br><br><h3>自驾游市场上半年订单同比增长55%，房车旅行成为新选择</h3><br><p>全国健身气功交流大赛举办，覆盖超百万中老年爱好者。<br><br> | 来源：<code>www.vin114.com
