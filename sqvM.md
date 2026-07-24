@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分16秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国旅游厕所建设完成，所有景区实现第三卫生间全覆盖</h3><br><p>QFII新进汽车芯片标的，MCU国产替代获海外机构看好。<br><br> | 来源：<code>https://new-caike-official.com
+</code></p><br><br><h3>公募基金集中调研电力现货交易标的，交易系统订单翻倍</h3><br><p>涪陵榨菜异动拉升3.8%，产品提价传导顺利。<br><br> | 来源：<code>https://new-caoliu.cn
+</code></p><br><br><h3>五粮液重回160元，消费板块复苏逻辑逐步验证</h3><br><p>紫光国微异动拉升5.6%，特种芯片需求持续高增。<br><br> | 来源：<code>https://new-caoliushequ.cn
+</code></p><br><br><h3>中国女子柔道队世锦赛斩获2金，奥运备战扎实推进</h3><br><p>中国五子连珠队世界杯包揽全部金牌，优势项目无人能敌。<br><br> | 来源：<code>https://new-chengrenwangzhan.com.cn
+</code></p><br><br><h3>中原高速异动拉升2.2%，河南路网业务边际改善</h3><br><p>全国土壤污染状况详查完成，受污染耕地安全利用率达95%。<br><br> | 来源：<code>https://new-fb-sports.com.cn
+</code></p><br><br><h3>中际旭创客户优势：全球云厂商的深度绑定合作关系</h3><br><p>亿纬锂能多赛道布局：消费电池+动力电池+储能的协同。<br><br> | 来源：<code>https://new-feifansports.com.cn
+</code></p><br><br><h3>黄山暑期单日客流破4万，山顶酒店提前半个月售罄</h3><br><p>上半年全国城镇新增就业780万人，完成全年目标的70%。<br><br> | 来源：<code>https://new-fulidaohang.com.cn
+</code></p><br><br><h3>全国地热能源开发利用规模突破5000万吨标准煤</h3><br><p>长安汽车涨停封板，突破后的延续性如何判断。<br><br> | 来源：<code>https://new-fuliji.com.cn
+</code></p><br><br><h3>社保基金大幅加仓创新器械标的，单季度持仓增幅超50%</h3><br><p>中国铁建全球工程布局：轨交基建龙头的海外市场拓展。<br><br> | 来源：<code>https://new-haijiaoshequ.cn
+</code></p><br><br><h3>保利发展土储优势：核心城市优质土储的长期价值释放</h3><br><p>中国保龄球队亚运会夺得金牌，小众项目实现历史性突破。<br><br> | 来源：<code>https://new-hanxiucao.cn
+</code></p><br><br><h3>券商研究所扎堆调研车载雷达标的，激光雷达量产交付节奏</h3><br><p>平遥古城暑期推出实景演出，夜间场次上座率超100%。<br><br> | 来源：<code>https://new-hongtao.com.cn
+</code></p><br><br><h3>大金重工塔筒出口翻倍，单季业绩预告超预期</h3><br><p>知名私募大手笔增持储能电池标的，海外户储订单获资本布局。<br><br> | 来源：<code>https://new-hongtaoyingshi.com.cn
+</code></p><br><br><h3>10年期国债收益率下行至历史低位，高股息资产配置价值凸显</h3><br><p>革命老区振兴发展新政策落地，缩小区域发展差距。<br><br> | 来源：<code>https://new-huangguashipin.com.cn
+</code></p><br><br><h3>定向降息支持绿色电力，绿电运营板块获定向利好</h3><br><p>全球无人机市场规模突破1500亿美元，行业应用爆发。<br><br> | 来源：<code>https://new-hyou.com.cn
+</code></p><br><br><h3>恒瑞医药研发管线复盘：从仿制药龙头到创新药巨头的蜕变</h3><br><p>医疗大模型通过三类医疗器械认证，辅助诊断准确率超98%。<br><br> | 来源：<code>https://new-jinmantiantang.com.cn
+</code></p><br><br><h3>普惠小微贷款利率进一步下行，中小微企业盈利改善</h3><br><p>国内政策性降息落地，宽信用进程加速推进。<br><br> | 来源：<code>https://new-jisutiyu.com.cn
+</code></p><br><br><h3>外资机构集中调研存储芯片龙头，海外订单情况成焦点</h3><br><p>人形机器人核心标的启动申购，发行价对应估值具备吸引力。<br><br> | 来源：<code>https://new-jiujiujiu.com.cn
+</code></p><br><br><h3>全国东北虎种群数量突破70只，野生虎栖息地持续扩大</h3><br><p>五粮液品牌价值分析：浓香型白酒龙头的估值逻辑。<br><br> | 来源：<code>https://new-jiujiure.com.cn
+</code></p><br><br><h3>知名私募调研钠电池龙头，量产线投产时间点首次公开</h3><br><p>光伏组件出口创历史新高，光伏海外链标的走强。<br><br> | 来源：<code>https://new-jiujiushipin.com.cn
+</code></p><br><br><h3>AIGC内容监管细则出台，AI内容标的集体拉升</h3><br><p>知名私募调研钙钛矿设备标的，核心设备交付周期缩短。<br><br> | 来源：<code>https://new-jiujiuyingshi.com.cn
