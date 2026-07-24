@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时06分55秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>老旧小区改造升级，家装家居标的全线拉升</h3><br><p>电源芯片价格上涨7%，模拟芯片板块景气回升。<br><br> | 来源：<code>https://cn-worldcup-huodong.com
+</code></p><br><br><h3>海尔智家异动拉升4.2%，卡萨帝高端品牌增速亮眼</h3><br><p>全国远程医疗覆盖所有县域，优质医疗资源下沉至基层。<br><br> | 来源：<code>https://cn-worldcup-peilv.com
+</code></p><br><br><h3>新能源金属需求回暖：钴、锂、镍的行情持续性对比</h3><br><p>国产EDA龙头登陆科创板，核心技术打破海外垄断引市场关注。<br><br> | 来源：<code>https://cn-worldcup-score-rate.com
+</code></p><br><br><h3>大模型在文创领域应用，AI生成剧本、音乐成行业常态</h3><br><p>政策性降息支持汽车消费，新能源汽车板块迎来定向利好。<br><br> | 来源：<code>https://cn-worldcup-xiazhu.com
+</code></p><br><br><h3>国内动漫文旅融合项目爆发，动漫主题乐园暑期营收破百亿</h3><br><p>实控人承诺6个月内不减持机器人控制器标的，稳定股价。<br><br> | 来源：<code>https://cn-xiuxiushipin.com.cn
+</code></p><br><br><h3>宁夏沙坡头暑期沙漠游热度高，日均接待游客超3万人次</h3><br><p>产业资本连续增持智能电网标的，特高压产业链获资本布局。<br><br> | 来源：<code>https://cn-yamei-sports.com.cn
+</code></p><br><br><h3>海外对冲基金组团调研广告营销龙头，AI营销订单同比大增</h3><br><p>存储模组龙头登陆科创板，AI存储产品出货量超行业预期。<br><br> | 来源：<code>https://cn-yinghuashipin.com.cn
+</code></p><br><br><h3>动力电池级碳酸锂报价单日上涨2000元/吨，产业链回暖信号显现</h3><br><p>3D生成大模型技术突破，1分钟生成高精度工业模型。<br><br> | 来源：<code>https://cn91.com.cn
+</code></p><br><br><h3>基金公司集体到访氢能储运龙头，高压储氢瓶订单爆发</h3><br><p>外资机构集中调研跨境支付标的，海外结算规模环比大增。<br><br> | 来源：<code>https://com91.com.cn
+</code></p><br><br><h3>上半年全国集成电路产量同比增长18%，产业链自主可控推进</h3><br><p>海康威视海外市场拓展：AI安防产品的全球份额提升。<br><br> | 来源：<code>https://cpp-official-app.com
+</code></p><br><br><h3>5年期LPR下调15BP，地产链估值修复行情延续</h3><br><p>自驾游市场上半年订单同比增长55%，房车旅行成为新选择。<br><br> | 来源：<code>https://crazy-winner-aaa.com
+</code></p><br><br><h3>医疗器械创新绿色通道，创新器械板块异动</h3><br><p>券商研究所扎堆调研车载芯片龙头，车规级认证进度超预期。<br><br> | 来源：<code>https://csfgae.cn
+</code></p><br><br><h3>商业航天准入政策放宽，商业航天标的异动</h3><br><p>外资机构席位净买入国电南瑞1.6亿，电网设备龙头获外资加仓。<br><br> | 来源：<code>https://cuimiandailaidexingfushenghuo.cn
+</code></p><br><br><h3>暑期电影票房突破120亿，国产影片包揽票房前十</h3><br><p>中国曲棍球队亚运会夺冠，集体球类项目多点开花。<br><br> | 来源：<code>https://cun-zhi-tiaozhan.com.cn
+</code></p><br><br><h3>儿童用药扶持政策，儿科医药标的全线拉升</h3><br><p>杭州亚运会一周年纪念活动举办，场馆全年接待健身人次破亿。<br><br> | 来源：<code>https://da-feiji.com.cn
+</code></p><br><br><h3>全国生态保护红线划定完成，覆盖超三分之一陆域面积</h3><br><p>基金公司集体到访人形电机龙头，力矩电机产能释放数据。<br><br> | 来源：<code>https://da-xiangjiao-yiren-wang.com.cn
+</code></p><br><br><h3>降准降息组合利好地产链，建材板块迎来估值修复</h3><br><p>科大讯飞放量上涨6.8%，AI教育产品落地加速。<br><br> | 来源：<code>https://da-xuexiao-hua.com.cn
+</code></p><br><br><h3>全国县域旅游百强县榜单发布，江浙地区占比超六成</h3><br><p>产业基金组团调研后集中增持存储模组龙头，合计投入超7亿。<br><br> | 来源：<code>https://dafuweng-caipiao-official.com
+</code></p><br><br><h3>智能制造政策升级，机器人自动化板块集体上涨</h3><br><p>东方电缆海缆技术壁垒：深海海缆的国产替代领先地位。<br><br> | 来源：<code>https://daman-guan-web.com
+</code></p><br><br><h3>外资单日扫货药明康德18亿，CXO赛道获外资集中流入</h3><br><p>中国建筑基建龙头优势：国内建筑行业的订单与规模优势。<br><br> | 来源：<code>https://damanguan-app-android.com
