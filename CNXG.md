@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时06分52秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>天齐锂业涨超5.8%，锂矿自给率优势持续凸显</h3><br><p>日本央行结束负利率政策，日元汇率回升至130关口。<br><br> | 来源：<code>https://zh-zuoai.com.cn
+</code></p><br><br><h3>东方电缆海缆技术壁垒：深海海缆的国产替代领先地位</h3><br><p>上海自贸区扩区方案落地，引领更高水平对外开放。<br><br> | 来源：<code>https://zhang-ri-guangyin.com.cn
+</code></p><br><br><h3>天津建投异动拉升2.8%，天津基建投资持续增长</h3><br><p>美的集团创年内新高，海外家电收入增速超20%。<br><br> | 来源：<code>https://zhangbaizhiyanzhaomen.net.cn
+</code></p><br><br><h3>阿里通义千问3.0版本上线，代码生成能力超越国际同类产品</h3><br><p>百亿私募组团调研碳纤维企业，风电领域应用占比突破60%。<br><br> | 来源：<code>https://zhaoyangshui.com.cn
+</code></p><br><br><h3>基金公司集体到访氢能储运龙头，高压储氢瓶订单爆发</h3><br><p>全国农村人居环境整治提升，生活垃圾无害化处理率达97%。<br><br> | 来源：<code>https://zhengtaimanhua.com.cn
+</code></p><br><br><h3>头部公募调研汽车电子标的，车规芯片出货量环比大增</h3><br><p>全国首套房住房贷款"认房不认贷"政策全面落地。<br><br> | 来源：<code>https://zhengtu-guoji-app.com
+</code></p><br><br><h3>企业中长期贷款增速回升，宽信用效果逐步显现</h3><br><p>美联储降息后全球流动性宽松，成长板块估值抬升。<br><br> | 来源：<code>https://zhengtu-guoji-entry.com
+</code></p><br><br><h3>生物医药产业创新政策，CXO板块全线异动</h3><br><p>央行超额续作MLF并降息5BP，流动性宽松信号明确。<br><br> | 来源：<code>https://zhengtu-guoji.com.cn
+</code></p><br><br><h3>国产动画电影票房上半年突破80亿元，国漫IP影响力扩大</h3><br><p>全国农村人居环境整治提升，生活垃圾无害化处理率达97%。<br><br> | 来源：<code>https://zhenren-sports-hub.com.cn
+</code></p><br><br><h3>锂价连续反弹15%，锂矿板块迎来趋势性行情启动</h3><br><p>储能温控龙头开启新股申购，海外客户覆盖全球头部厂商。<br><br> | 来源：<code>https://zhibo-zuoai.com.cn
+</code></p><br><br><h3>大股东承诺6个月内不减持氢能标的，释放稳定股价信号</h3><br><p>美联储第三次降息落地，全球风险偏好显著提升。<br><br> | 来源：<code>https://zhiguangzaixian.org.cn
+</code></p><br><br><h3>超280家机构到访工业母机龙头，五轴机床量产进度超预期</h3><br><p>张家界玻璃桥暑期单日客流破3万，网红高空项目持续走红。<br><br> | 来源：<code>https://zhiguangzaixianguankan.org.cn
+</code></p><br><br><h3>全国工业余热利用项目大规模落地，年节能超千万吨标准煤</h3><br><p>超200家机构到访数据要素龙头，数据确权商业模式落地。<br><br> | 来源：<code>https://zhongwenzimu-rihan.com.cn
+</code></p><br><br><h3>不要盲目跟风炒热点：大部分追高的资金，最后都会成为接盘侠</h3><br><p>服务机器人试点政策落地，家用机器人标的异动。<br><br> | 来源：<code>https://zhongwenzimuri-han.com.cn
+</code></p><br><br><h3>洽洽食品坚果品类拓展：传统炒货企业的成长第二曲线</h3><br><p>控股股东耗资2.5亿增持储能电池标的，彰显海外订单信心。<br><br> | 来源：<code>https://zhongwenzimurihan.com.cn
+</code></p><br><br><h3>MCU芯片价格单月上涨8%，汽车半导体板块盈利改善</h3><br><p>政策性降息支持保障性住房建设，保障房产业链受益。<br><br> | 来源：<code>https://zhongying-guoji-web.com
+</code></p><br><br><h3>外资资管连续加仓风电轴承龙头，大兆瓦轴承获外资重仓</h3><br><p>知名私募大手笔增持乳制品龙头，持仓占比达3.5%。<br><br> | 来源：<code>https://zhongying-zygjb-official.com
+</code></p><br><br><h3>长城汽车坦克系列放量，单季业绩预告超预期</h3><br><p>伊利股份涨超3.2%，乳制品行业需求回暖。<br><br> | 来源：<code>https://zhongziwuma.net.cn
+</code></p><br><br><h3>北方华创半导体设备订单爆发，单季业绩预增超80%</h3><br><p>QFII集中调研宠物食品龙头，海外市场渗透率数据公开。<br><br> | 来源：<code>https://zhuce-song-cai-jin.com.cn
+</code></p><br><br><h3>企业融资成本创历史新低，制造业投资增速回升</h3><br><p>全国公积金贷款政策优化，支持居民合理住房需求。<br><br> | 来源：<code>https://zi-paitoupai.com.cn
