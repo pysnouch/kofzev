@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分23秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>天顺风能风电塔架布局：风电零部件龙头的全球份额</h3><br><p>头部券商调研固态电池标的，下一代技术落地时间表曝光。<br><br> | 来源：<code>https://kaiyuan-tiyu.com.cn
+</code></p><br><br><h3>美联储第三次降息落地，全球风险偏好显著提升</h3><br><p>外资资管举牌固态电解质企业，下一代电池技术获外资重仓。<br><br> | 来源：<code>https://kaiyun-access-pro.com.cn
+</code></p><br><br><h3>全国旅游厕所建设完成，所有景区实现第三卫生间全覆盖</h3><br><p>公募基金发行回暖，基金重仓标的集体拉升。<br><br> | 来源：<code>https://kaiyun-com-go.com.cn
+</code></p><br><br><h3>汉服产业市场规模上半年突破100亿元，国风服饰成为日常潮流</h3><br><p>全国金丝猴种群数量突破4万只，多个栖息地生态改善。<br><br> | 来源：<code>https://kaiyun-com-hq.com.cn
+</code></p><br><br><h3>注册制全面落地，券商投行业务标的全线拉升</h3><br><p>机构专用席位大额买入招商银行2.5亿，银行龙头获机构增持。<br><br> | 来源：<code>https://kaiyun-com-hub.com.cn
+</code></p><br><br><h3>头部机构组团到访风电轴承龙头，大兆瓦轴承市占率提升</h3><br><p>长安汽车自主转型路径：新能源车型销量爆发的底层逻辑。<br><br> | 来源：<code>https://kaiyun-com-pro.com.cn
+</code></p><br><br><h3>地方国资战略入股氢能燃料电池标的，助力商用车推广落地</h3><br><p>北方稀土异动拉升，稀土永磁行业供需格局优化。<br><br> | 来源：<code>https://kaiyun-com-site.com.cn
+</code></p><br><br><h3>北向资金单日买入三安光电9000万，LED龙头获外资持续流入</h3><br><p>数据要素政策落地，数据确权板块全线上涨。<br><br> | 来源：<code>https://kaiyun-con-vip.com.cn
+</code></p><br><br><h3>知名私募大手笔增持乳制品龙头，持仓占比达3.5%</h3><br><p>罕见病药物医保激励政策，罕见病药标的走强。<br><br> | 来源：<code>https://kaiyun-con-web.com.cn
+</code></p><br><br><h3>全球半导体产业周期复苏，销售额同比增长18%创历史新高</h3><br><p>小康股份涨超7.7%，新能源汽车业务盈利修复。<br><br> | 来源：<code>https://kaiyun-core-pro.com.cn
+</code></p><br><br><h3>磷酸铁锂价格连续上涨7%，动力电池材料环节回暖</h3><br><p>全国长江十年禁渔成效显著，水生生物资源逐步恢复。<br><br> | 来源：<code>https://kaiyun-entry-go.com.cn
+</code></p><br><br><h3>恒瑞医药研发管线复盘：从仿制药龙头到创新药巨头的蜕变</h3><br><p>头部券商到访酒店连锁龙头，RevPAR恢复至2019年120%。<br><br> | 来源：<code>https://kaiyun-entry-pro.com.cn
+</code></p><br><br><h3>央行加大公开市场操作力度，资金面维持平稳宽松</h3><br><p>中航沈飞军机交付逻辑：军工整机龙头的长期成长空间。<br><br> | 来源：<code>https://kaiyun-esports-hq.com.cn
+</code></p><br><br><h3>西藏暑期游客量突破200万人次，高原旅游热度创新高</h3><br><p>科达利放量拉升4.7%，锂电池结构件订单饱满。<br><br> | 来源：<code>https://kaiyun-football-go.com.cn
+</code></p><br><br><h3>海康威视AI业务高增，单季净利润同比增45%</h3><br><p>隆基绿能成本优势解析：光伏龙头如何持续领跑行业。<br><br> | 来源：<code>https://kaiyun-login-pro.com.cn
+</code></p><br><br><h3>三星堆博物馆新馆全面开放，单日最大接待量突破5万人次</h3><br><p>外资资管举牌消费电子龙头，苹果产业链获外资持续加仓。<br><br> | 来源：<code>https://kaiyun-official-go.com.cn
+</code></p><br><br><h3>紫金矿业创阶段新高3.2%，铜金产量持续超预期</h3><br><p>中兴通讯涨超4%，6G技术研发进度超市场预期。<br><br> | 来源：<code>https://kaiyun-official-pro.com.cn
+</code></p><br><br><h3>苏州园林暑期接待人次破500万，江南古典文旅持续走红</h3><br><p>上半年全国风电装机新增超3000万千瓦，清洁能源建设提速。<br><br> | 来源：<code>https://kaiyun-plat-vip.com.cn
+</code></p><br><br><h3>结构性降息精准支持制造业，高端制造板块获定向利好</h3><br><p>中国围棋选手夺得世界冠军，连续十年保持世界第一。<br><br> | 来源：<code>https://kaiyun-qipai-go.com.cn
+</code></p><br><br><h3>箱板纸价格上涨5%，包装产业链盈利改善</h3><br><p>海天味业涨超3.5%，调味品行业需求复苏。<br><br> | 来源：<code>https://kaiyun-site-go.com.cn
