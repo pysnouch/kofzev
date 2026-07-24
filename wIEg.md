@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时06分57秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>养老金新进虚拟电厂标的，首次布局电力信息化赛道</h3><br><p>百亿私募组团调研固态电解质企业，实验室数据突破行业阈值。<br><br> | 来源：<code>https://huangyouyouxixiazai.com.cn
+</code></p><br><br><h3>全球智能手机市场回暖，二季度出货量同比增长7%</h3><br><p>长江流域水质优良断面比例达99%，生态环境持续改善。<br><br> | 来源：<code>https://huangyouzaixianwan.com.cn
+</code></p><br><br><h3>隆基绿能成本优势解析：光伏龙头如何持续领跑行业</h3><br><p>伊利股份乳制品量价齐升，前三季度业绩预增超20%。<br><br> | 来源：<code>https://huangyouziyuan.com.cn
+</code></p><br><br><h3>5年期LPR下调带动地产链估值修复，家居家电板块集体上涨</h3><br><p>全国首套房住房贷款"认房不认贷"政策全面落地。<br><br> | 来源：<code>https://huangyouzuofang.com.cn
+</code></p><br><br><h3>招商银行净息差企稳，前三季度业绩预增超15%</h3><br><p>高管团队集体调研后增持冷链物流标的，合计增持超8000万。<br><br> | 来源：<code>https://huanleguzuixindizhifabuye.cn
+</code></p><br><br><h3>量子通信标的启动申购，干线网络建设订单同比翻倍</h3><br><p>创新药医保谈判落地，创新药板块迎来情绪修复。<br><br> | 来源：<code>https://huimeili.com.cn
+</code></p><br><br><h3>万科A异动，地产链政策宽松预期持续升温</h3><br><p>国家版本馆全部建成开放，典藏中华文脉珍贵资源。<br><br> | 来源：<code>https://huoyingbenzi.com.cn
+</code></p><br><br><h3>海外对冲基金组团调研预制菜龙头，B端渠道扩张节奏披露</h3><br><p>定向降准支持县域金融机构，乡村振兴板块迎来利好。<br><br> | 来源：<code>https://huoyingcc.com.cn
+</code></p><br><br><h3>外资机构集中调研种业龙头，转基因商业化落地节奏披露</h3><br><p>镁价单月上涨18%，镁合金板块迎来产品涨价行情。<br><br> | 来源：<code>https://huoyinghuang.com.cn
+</code></p><br><br><h3>中国男子射击队世锦赛斩获6金，奥运席位全部拿满</h3><br><p>国内降息政策出台，地产链标的集体上涨。<br><br> | 来源：<code>https://huoyingrenzhe-tongren.com.cn
+</code></p><br><br><h3>QFII集中调研医药流通龙头，院外市场拓展节奏披露</h3><br><p>北向资金连续增持医美耗材龙头，近2月持仓增幅超40%。<br><br> | 来源：<code>https://huoyingrenzhe-tongrendongman.com.cn
+</code></p><br><br><h3>啤酒开启新一轮涨价潮，啤酒板块盈利弹性释放</h3><br><p>全国碳排放强度同比下降4.2%，提前完成"十四五"减排目标。<br><br> | 来源：<code>https://huoyingrenzhebenzimanhua.com.cn
+</code></p><br><br><h3>保险资管连续增持酒店连锁龙头，消费复苏获机构长期配置</h3><br><p>外资单日扫货恒瑞医药9亿，创新药龙头外资持仓回升。<br><br> | 来源：<code>https://huoyingrenzhechutianbenzi.com.cn
+</code></p><br><br><h3>工业软件扶持政策出台，工业软件标的全线拉升</h3><br><p>明阳智能涨超4.8%，大兆瓦风机份额持续提升。<br><br> | 来源：<code>https://huoyingrenzheh.com.cn
+</code></p><br><br><h3>亨通光电海洋能源布局：光通信龙头的第二成长曲线</h3><br><p>跨境游持续升温，中国游客赴东南亚人次同比暴涨200%。<br><br> | 来源：<code>https://huoyingrenzhehuangbenzi.com.cn
+</code></p><br><br><h3>泸州老窖品牌升级：国窖1573的高端化成长路径解析</h3><br><p>钢材价格单月上涨7%，钢铁板块迎来产品涨价催化。<br><br> | 来源：<code>https://huoyingrenzhehuangyou.com.cn
+</code></p><br><br><h3>沪股通席位单日买入中国平安4亿，大金融龙头获外资增持</h3><br><p>网络安全政策升级，网安板块集体上涨。<br><br> | 来源：<code>https://huoyingrenzhetongrenbenzi.com.cn
+</code></p><br><br><h3>全国臭氧浓度同比下降5%，夏季蓝天数量明显增加</h3><br><p>机构资金集中买入闻泰科技1.1亿，半导体ODM龙头获抱团。<br><br> | 来源：<code>https://huoyingrenzhetongrenyouxi.com.cn
+</code></p><br><br><h3>沪股通席位单日买入中国平安4亿，大金融龙头获外资增持</h3><br><p>央行表态保持流动性合理充裕，后续政策工具储备充足。<br><br> | 来源：<code>https://huoyingtong.com.cn
+</code></p><br><br><h3>温氏股份放量上涨4.2%，养殖业务盈利持续修复</h3><br><p>北向资金连续增持液冷技术龙头，AI数据中心需求获外资加仓。<br><br> | 来源：<code>https://huoyingtongren18guankanguoyuban.com.cn
