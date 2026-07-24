@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分00秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>QFII集中调研国产EDA企业，全流程工具突破引关注</h3><br><p>坚果产品价格上涨5%，休闲食品龙头盈利改善。<br><br> | 来源：<code>https://mitaodongman.com.cn
+</code></p><br><br><h3>宝钢股份产品结构升级：高端钢铁的盈利稳定性分析</h3><br><p>产业资本连续增持储能温控龙头，产业链上下游协同布局。<br><br> | 来源：<code>https://mitaoshipinwang.com.cn
+</code></p><br><br><h3>拓普集团护城河分析：汽车零部件平台型企业的长期价值</h3><br><p>北向资金举牌工业机器人龙头，外资持仓创历史新高。<br><br> | 来源：<code>https://mitaoshipinzaixian.com.cn
+</code></p><br><br><h3>地方国资战略入股数据要素龙头，持股比例达12%成第二大股东</h3><br><p>存款利率下调后居民储蓄搬家，A股新增开户数环比大增。<br><br> | 来源：<code>https://mitaoshipinzhuye.com.cn
+</code></p><br><br><h3>泸州老窖品牌升级：国窖1573的高端化成长路径解析</h3><br><p>2026年上半年GDP同比增长5.8%，经济复苏动能持续增强。<br><br> | 来源：<code>https://miyayongbushilian.com.cn
+</code></p><br><br><h3>当升科技正极材料海外布局：高镍正极的全球份额扩张</h3><br><p>梅花生物氨基酸价格反弹，前三季度业绩预增超40%。<br><br> | 来源：<code>https://mjhl-game-hub.com.cn
+</code></p><br><br><h3>美联储降息后美元指数走弱，大宗商品价格迎来反弹</h3><br><p>天际股份锂电材料业务：传统化工企业的转型成长逻辑。<br><br> | 来源：<code>https://mogu-shipin.com.cn
+</code></p><br><br><h3>定向降准支持县域金融机构，乡村振兴板块迎来利好</h3><br><p>生物育种企业开启新股申购，转基因商业化落地节奏领先。<br><br> | 来源：<code>https://mogu-shipinguanwang.com.cn
+</code></p><br><br><h3>游戏大模型落地，AI实时生成游戏场景大幅降低开发成本</h3><br><p>F1中国大奖赛上海站落幕，周冠宇获本土最佳第四名创历史。<br><br> | 来源：<code>https://mogu-shipinzaixian.com.cn
+</code></p><br><br><h3>头部机构组团到访冷链物流标的，生鲜配送网络覆盖披露</h3><br><p>亚太经合组织峰会召开，达成数字经济合作框架。<br><br> | 来源：<code>https://mogu-tv.com.cn
+</code></p><br><br><h3>外资机构席位净买入中国交建5700万，基建龙头获外资加仓</h3><br><p>逆向投资不是盲目抄底：在行业逻辑反转时布局，胜率才最高。<br><br> | 来源：<code>https://moguchengpinrenshipin.com.cn
+</code></p><br><br><h3>登海种业放量上涨4.0%，玉米种子需求持续向好</h3><br><p>调味品开启集体涨价，食品板块盈利迎来修复。<br><br> | 来源：<code>https://moguchuanmei.com.cn
+</code></p><br><br><h3>降准释放长期资金支持基建，建筑板块迎来估值修复</h3><br><p>全球循环经济市场规模突破5万亿美元，资源利用效率提升。<br><br> | 来源：<code>https://mogushequ.com.cn
+</code></p><br><br><h3>中超联赛第20轮，上海申花6-0大胜对手稳居积分榜榜首</h3><br><p>国产悬疑剧全网播放量突破300亿，现实题材作品广受好评。<br><br> | 来源：<code>https://mogushipin-guanwang.com.cn
+</code></p><br><br><h3>醋产品价格上调6%，食醋板块盈利改善</h3><br><p>正泰电器放量上涨3.7%，户用光伏装机量领先。<br><br> | 来源：<code>https://mogushipinapp.com.cn
+</code></p><br><br><h3>世界乒乓球锦标赛中国队包揽5金，延续国乒辉煌</h3><br><p>控股股东耗资3亿增持汽车电子标的，回购股份用于股权激励。<br><br> | 来源：<code>https://mogushipinios.com.cn
+</code></p><br><br><h3>外资资管连续加仓跨境支付标的，近3月持仓占比提升至6%</h3><br><p>大模型在水利领域应用，洪水预警提前量提升至72小时。<br><br> | 来源：<code>https://mogushipinwangyeban.com.cn
+</code></p><br><br><h3>LPR非对称下调，银行净息差压力边际缓解</h3><br><p>芯片价格开启涨价潮，半导体板块盈利迎来修复。<br><br> | 来源：<code>https://mogushipinwangzhan.com.cn
+</code></p><br><br><h3>陕西建工异动拉升3.5%，西北基建订单持续落地</h3><br><p>全球无人机市场规模突破1500亿美元，行业应用爆发。<br><br> | 来源：<code>https://mogushipinxiazai.com.cn
+</code></p><br><br><h3>国内降息政策出台，地产链标的集体上涨</h3><br><p>超200家机构到访锂电铜箔龙头，4.5μm极薄铜箔量产。<br><br> | 来源：<code>https://mogushipinzaixianguankan.com.cn
