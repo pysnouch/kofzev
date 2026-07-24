@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分11秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>基金公司集体到访液冷技术龙头，AI数据中心液冷订单爆发</h3><br><p>降准降息组合拳落地，大金融板块率先迎来行情催化。<br><br> | 来源：<code>https://baoyushipin.com.cn
+</code></p><br><br><h3>游资顶级席位打板沃森生物9800万，疫苗标的获热炒</h3><br><p>东方财富放量大涨，券商异动下的人气激活信号。<br><br> | 来源：<code>https://baoyutv.com.cn
+</code></p><br><br><h3>中国男子网球选手闯入ATP巡回赛决赛，创历史最佳排名</h3><br><p>华域汽车涨超3.9%，汽车零部件龙头业绩超预期。<br><br> | 来源：<code>https://baoyutvtiaozhuan.com.cn
+</code></p><br><br><h3>全国家电以旧换新政策落地，回收拆解绿色化率达100%</h3><br><p>德业股份异动拉升6.8%，储能逆变器盈利超预期。<br><br> | 来源：<code>https://baoyuwangzhan.com.cn
+</code></p><br><br><h3>华为Mate70销量破千万，消费电子产业链全线异动</h3><br><p>全国碳市场覆盖行业扩围至8个，交易活跃度大幅提升。<br><br> | 来源：<code>https://baoyuwangzhifabu.com.cn
+</code></p><br><br><h3>山西汾酒全国化路径：清香型白酒龙头的全国扩张逻辑</h3><br><p>全国水泥行业碳减排技术升级，低碳生产线占比超60%。<br><br> | 来源：<code>https://baoyuwangzhiyuming.com.cn
+</code></p><br><br><h3>中国茶文化申遗成功，成为人类非物质文化遗产代表作</h3><br><p>宁夏沙坡头暑期沙漠游热度高，日均接待游客超3万人次。<br><br> | 来源：<code>https://baoyuzuixinyumingchaxun.com.cn
+</code></p><br><br><h3>知名私募举牌MR产业链标的，调研后直接大额扫货</h3><br><p>2026年全球经济增速达3.2%，实现温和复苏稳步增长。<br><br> | 来源：<code>https://bb-caipiao-app.com
+</code></p><br><br><h3>中国西电异动拉升3.6%，输配电设备集团整合加速</h3><br><p>固德威放量上涨7.2%，户用储能业务爆发式增长。<br><br> | 来源：<code>https://bb-sports-hub.com.cn
+</code></p><br><br><h3>国内大模型性能榜单更新，国产模型多项指标超越国际竞品</h3><br><p>多地推出城市更新专项政策，年内撬动投资超万亿元。<br><br> | 来源：<code>https://bb-sports-net.com.cn
+</code></p><br><br><h3>正邦科技放量上涨4.5%，债务重组进展顺利</h3><br><p>全国城市节水型社会建设达标率达85%，用水效率提升。<br><br> | 来源：<code>https://bb-sports-pro.com.cn
+</code></p><br><br><h3>全国珠江流域生态补水工程启动，流域生态流量保障达标</h3><br><p>广汽集团埃安盈利转正，前三季度业绩预增超45%。<br><br> | 来源：<code>https://bb-sports-zone.com.cn
+</code></p><br><br><h3>江淮汽车与华为合作：传统车企与科技巨头的协同价值</h3><br><p>中国中铁放量上涨3.0%，一带一路订单同比翻倍。<br><br> | 来源：<code>https://bbsports-web.com.cn
+</code></p><br><br><h3>别把运气当成能力：短期靠运气赚的钱，迟早会凭实力亏回去</h3><br><p>券商研究所扎堆调研AI芯片设计标的，大模型推理芯片流片成功。<br><br> | 来源：<code>https://bcbm788-web-vip.com
+</code></p><br><br><h3>阳光电源逆变器技术：全球逆变器龙头的技术迭代能力</h3><br><p>城市防洪排涝政策，管网建设标的全线拉升。<br><br> | 来源：<code>https://beibei-857-new.com
+</code></p><br><br><h3>明阳智能海上风电优势：大兆瓦风机的技术领先性逻辑</h3><br><p>牧原股份涨超4.7%，生猪价格周期拐点显现。<br><br> | 来源：<code>https://beitiao-ma-fei-dianying.com.cn
+</code></p><br><br><h3>长江流域水质优良断面比例达99%，生态环境持续改善</h3><br><p>城市漫步Citywalk成新潮流，相关搜索量同比暴涨300%。<br><br> | 来源：<code>https://benzidongman.com.cn
+</code></p><br><br><h3>全国电解铝行业全部实现超低排放，能耗水平全球领先</h3><br><p>体育赛事与全民健身（100条）。<br><br> | 来源：<code>https://benzigang.com.cn
+</code></p><br><br><h3>中国排球队世界联赛夺冠，三大球集体项目重回巅峰</h3><br><p>暑期国内游人次突破18亿，跨省长线游订单同比暴涨120%。<br><br> | 来源：<code>https://benzimanhua.com.cn
+</code></p><br><br><h3>杀虫剂价格上涨12%，农化产业链景气回升</h3><br><p>存量房贷利率下调后居民消费回升，旅游酒店板块受益。<br><br> | 来源：<code>https://benziwangzhan.com.cn
