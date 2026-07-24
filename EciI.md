@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分19秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>控股股东耗资5.2亿增持智慧交通标的，回购股份用于股权激励</h3><br><p>全国演出市场线下消费人次破亿，周边产品营收占比提升。<br><br> | 来源：<code>https://ai-weinaizaixian.cn
+</code></p><br><br><h3>天赐材料异动拉升4.9%，电解液龙头成本优势凸显</h3><br><p>字节跳动豆包大模型企业版发布，百万企业开启AI办公升级。<br><br> | 来源：<code>https://aiaiwang.net.cn
+</code></p><br><br><h3>啤酒开启新一轮涨价潮，啤酒板块盈利弹性释放</h3><br><p>超210家机构到访AI安防龙头，海外政府订单同比大增。<br><br> | 来源：<code>https://aigei.net.cn
+</code></p><br><br><h3>多式联运示范工程落地，物流枢纽板块走强</h3><br><p>QFII集中调研海上风电标的，深远海项目订单引热议。<br><br> | 来源：<code>https://aiqingdao-web.com.cn
+</code></p><br><br><h3>原油价格突破85美元/桶，油气开采板块盈利提升</h3><br><p>基金公司集体到访消费电子龙头，苹果新品备货量曝光。<br><br> | 来源：<code>https://aiqingdaodujia.org.cn
+</code></p><br><br><h3>中国船舶涨超4.5%，造船行业订单持续饱满</h3><br><p>新型电力系统建设规划，电力设备板块走强。<br><br> | 来源：<code>https://aiqingdaodujialuntan.org.cn
+</code></p><br><br><h3>全国氢能产业示范城市群落地，燃料电池汽车推广超12万辆</h3><br><p>加拿大经济保持增长，能源和科技产业双驱动。<br><br> | 来源：<code>https://aiqingdaoguanfangluntan.org.cn
+</code></p><br><br><h3>长安汽车涨停封板，突破后的延续性如何判断</h3><br><p>中国女子足球闯入世界杯四强，创造历史最佳战绩。<br><br> | 来源：<code>https://aiqingdaoluntan.org.cn
+</code></p><br><br><h3>调味品开启集体涨价，食品板块盈利迎来修复</h3><br><p>千禾味业零添加差异化路线：调味品赛道的突围逻辑。<br><br> | 来源：<code>https://aiqingdaoluntandujia.org.cn
+</code></p><br><br><h3>首套房贷款利率突破2.9%，刚需购房成本创历史新低</h3><br><p>草原生态保护政策，草牧业板块全线拉升。<br><br> | 来源：<code>https://aiqingdaoluntandujiatigong.org.cn
+</code></p><br><br><h3>全国青少年冰雪赛事覆盖南方城市，冰雪运动南展西扩</h3><br><p>亿纬锂能放量上涨6.4%，储能电池出货量翻倍。<br><br> | 来源：<code>https://aiqingdaoluntanshouye.org.cn
+</code></p><br><br><h3>全国机动车国六b标准全面实施，新车排放污染大幅降低</h3><br><p>2026年暑期文旅总收入突破2万亿，创历史同期新高。<br><br> | 来源：<code>https://aiqingdaoluntanwangzhi.org.cn
+</code></p><br><br><h3>全国羽毛球业余赛参赛人数破50万，民间高手层出不穷</h3><br><p>交控科技异动拉升4.5%，城轨信号系统订单爆发。<br><br> | 来源：<code>https://aiqingdaoluntanyongjiuyuming.org.cn
+</code></p><br><br><h3>保险资管连续增持AI安防龙头，海外订单高增获机构认可</h3><br><p>福耀玻璃全球汽车玻璃布局：细分赛道全球龙头的壁垒。<br><br> | 来源：<code>https://aiqingdaoluntanzaixianguankan.org.cn
+</code></p><br><br><h3>大模型在交通领域应用，城市拥堵率下降20%</h3><br><p>中国田径队世锦赛斩获3金，男子跳远打破尘封20年纪录。<br><br> | 来源：<code>https://aiqingdaoshouyeluntan.org.cn
+</code></p><br><br><h3>思源电气电网设备出口高增，前三季度业绩预增超30%</h3><br><p>保险资管连续增持光伏胶膜标的，长期配置光伏核心资产。<br><br> | 来源：<code>https://aiqingdaowangzhan.org.cn
+</code></p><br><br><h3>宝钢股份企稳回升，钢铁行业盈利预期边际改善</h3><br><p>招商公路涨超2.4%，公路运营龙头价值凸显。<br><br> | 来源：<code>https://aiqingdaowangzhi.org.cn
+</code></p><br><br><h3>隆基绿能底部抬升，上升通道内的低吸窗口显现</h3><br><p>全球人工智能芯片市场规模突破1500亿美元，算力需求暴涨。<br><br> | 来源：<code>https://aiqingdaoyazhou.org.cn
+</code></p><br><br><h3>中兴通讯通信技术积累：6G时代的核心竞争力展望</h3><br><p>国产科幻电影票房突破50亿元，《流浪地球3》刷新纪录。<br><br> | 来源：<code>https://aiqingdaoyazhouluntan.org.cn
+</code></p><br><br><h3>QFII集中调研海上风电标的，深远海项目订单引热议</h3><br><p>陕西煤业放量上涨3.1%，煤炭供需格局保持稳健。<br><br> | 来源：<code>https://aiqingdaoyiluntanmianfeiluxian.org.cn
