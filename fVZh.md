@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分14秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>宁德时代Q3净利润同比增长70%，大超市场预期</h3><br><p>存量房贷利率下调释放万亿现金流，可选消费板块弹性最大。<br><br> | 来源：<code>https://ou-meirihan.com.cn
+</code></p><br><br><h3>外资机构席位大额买入药明康德5亿，CXO赛道获外资加仓</h3><br><p>宁德时代突破关键压力位，后续上涨空间与支撑位一览。<br><br> | 来源：<code>https://oumei-a-v.com
+</code></p><br><br><h3>机构+北向合力买入当升科技8200万，正极材料标的布局</h3><br><p>长城汽车坦克系列放量，单季业绩预告超预期。<br><br> | 来源：<code>https://oumei-mv.com.cn
+</code></p><br><br><h3>阿里通义千问3.0版本上线，代码生成能力超越国际同类产品</h3><br><p>汽车下乡补贴政策出台，自主车企标的全线上涨。<br><br> | 来源：<code>https://oumeijingpin.com.cn
+</code></p><br><br><h3>全国祁连山生态保护修复完成，矿区全部恢复植被覆盖</h3><br><p>正泰电器放量上涨3.7%，户用光伏装机量领先。<br><br> | 来源：<code>https://oumeiquyi.com.cn
+</code></p><br><br><h3>北方稀土异动拉升5.4%，稀土产品价格反弹</h3><br><p>央行表态适时加大政策力度，后续降准降息仍有空间。<br><br> | 来源：<code>https://oumeiwang.com.cn
+</code></p><br><br><h3>全国PM2.5平均浓度同比下降8%，空气质量优良天数比率达87.5%</h3><br><p>地方国资战略入股数据要素龙头，持股比例达12%成第二大股东。<br><br> | 来源：<code>https://oumeiwuma.com.cn
+</code></p><br><br><h3>存储芯片价格连续上涨12%，存储板块迎来趋势性行情</h3><br><p>中国中车异动拉升，低位补涨行情的参与思路。<br><br> | 来源：<code>https://oumeiyiquerqu.com.cn
+</code></p><br><br><h3>工业硅价格触底反弹15%，光伏硅料成本端压力下降</h3><br><p>智慧矿山标的登陆北交所，煤矿智能化改造订单同比翻倍。<br><br> | 来源：<code>https://p-zhan-shipin.com.cn
+</code></p><br><br><h3>药明康德全球竞争力研究：CXO赛道的长期成长逻辑</h3><br><p>海康威视AI业务高增，单季净利润同比增45%。<br><br> | 来源：<code>https://p-zhanshipin.com.cn
+</code></p><br><br><h3>皖通高速涨超2.1%，安徽区域路网盈利稳健</h3><br><p>上半年全国光伏组件出口同比增长28%，全球市场份额超92%。<br><br> | 来源：<code>https://pa-papa.com.cn
+</code></p><br><br><h3>基金公司集体到访消费电子龙头，苹果新品备货量曝光</h3><br><p>全国荒漠化土地面积连续20年缩减，沙化治理成效突出。<br><br> | 来源：<code>https://pa-papashipin.com.cn
+</code></p><br><br><h3>文旅部推出100条乡村精品线路，带动县域文旅消费</h3><br><p>央行超额续作MLF并降息5BP，流动性宽松信号明确。<br><br> | 来源：<code>https://paomianfan.com.cn
+</code></p><br><br><h3>央行宣布全面降准0.5个百分点，释放长期资金超万亿</h3><br><p>国内AI安全技术突破，大模型内容风控拦截率达99.9%。<br><br> | 来源：<code>https://paomianfanroude.com.cn
+</code></p><br><br><h3>宁德时代跳空高开6.4%，麒麟电池商业化落地加速</h3><br><p>国内音乐节市场爆发，上半年演出场次同比增长150%。<br><br> | 来源：<code>https://paozaiwojiadelamei.com.cn
+</code></p><br><br><h3>数字人民币试点扩容，数字人民币产业链走强</h3><br><p>实控人承诺6个月内不减持机器人控制器标的，稳定股价。<br><br> | 来源：<code>https://papa-shipin.com.cn
+</code></p><br><br><h3>全国文旅市场监管加强，查处超千家违规经营旅行社</h3><br><p>智飞生物异动拉升4.9%，疫苗产品批签发量回升。<br><br> | 来源：<code>https://papapazaixianguankan.cn
+</code></p><br><br><h3>大模型在水利领域应用，洪水预警提前量提升至72小时</h3><br><p>网络安全政策升级，网安板块集体上涨。<br><br> | 来源：<code>https://pennaishuidongman.com.cn
+</code></p><br><br><h3>中国男子皮划艇队世锦赛夺冠，静水项目实现金牌零突破</h3><br><p>AI视频修复技术普及，老电影4K修复效率提升10倍。<br><br> | 来源：<code>https://penshui.com.cn
+</code></p><br><br><h3>国内大模型行业应用案例破百万，覆盖千行百业</h3><br><p>全国老年大学体育课程覆盖超千万老人，健康老龄化推进。<br><br> | 来源：<code>https://pg-dianzi-pingtai.com.cn
