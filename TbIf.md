@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分16秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>钴价连续上涨13%，3C电池板块盈利提升</h3><br><p>科大讯飞AI业务盈利兑现，单季净利润同比增120%。<br><br> | 来源：<code>https://xiaocaoav.cn
+</code></p><br><br><h3>全国城市慢行系统建设提速，绿道总里程突破15万公里</h3><br><p>中国电竞队亚运会卫冕金牌，电竞入奥进程加速推进。<br><br> | 来源：<code>https://xiaogoukan-fan.com.cn
+</code></p><br><br><h3>地方国资战略入股汽车轻量化标的，助力一体化压铸产能释放</h3><br><p>农村物流体系建设规划，乡村物流标的全线异动。<br><br> | 来源：<code>https://xiaohoukanfan.com.cn
+</code></p><br><br><h3>中国中车全球轨道交通布局：一带一路带来的增量空间</h3><br><p>北京建工放量上涨3.0%，京津冀基建项目落地加速。<br><br> | 来源：<code>https://xiaohukanfan.com.cn
+</code></p><br><br><h3>大模型在电力巡检领域应用，缺陷识别效率提升5倍</h3><br><p>中国飞镖队亚运会夺得奖牌，小众运动逐步走进大众视野。<br><br> | 来源：<code>https://xiaomogu.com.cn
+</code></p><br><br><h3>海尔智家高端化布局：卡萨帝品牌的溢价能力解析</h3><br><p>三亚亚特兰蒂斯暑期日均客流超3万，水世界项目一票难求。<br><br> | 来源：<code>https://xiaoshuikanfan.com.cn
+</code></p><br><br><h3>QFII大幅加仓低空经济龙头，单季度持股翻倍引市场关注</h3><br><p>中国马术队首次获得亚运会金牌，马术运动实现零的突破。<br><br> | 来源：<code>https://xiaoxuewang.com.cn
+</code></p><br><br><h3>雄安新区建设新进展，雄安基建标的集体异动</h3><br><p>保险资管扎堆调研CRO龙头，创新药管线临床数据披露。<br><br> | 来源：<code>https://xiaoyuanchunse.com.cn
+</code></p><br><br><h3>美伊冲突出现缓和信号，双方开启间接谈判寻求停火路径</h3><br><p>中国羽毛球队汤尤杯卫冕成功，继续保持世界顶尖水平。<br><br> | 来源：<code>https://xiaozemaliya.com.cn
+</code></p><br><br><h3>敦煌研究院数字文创营收突破5亿元，千年文化触达年轻群体</h3><br><p>能耗双控政策优化，高耗能行业龙头标的走强。<br><br> | 来源：<code>https://xin-pujing-yingshi.com.cn
+</code></p><br><br><h3>知名私募大手笔增持数字人民币标的，持仓占比突破3%</h3><br><p>中国门球队世锦赛夺得冠军，中老年运动项目国际领先。<br><br> | 来源：<code>https://xin-pujing-yulecheng.com.cn
+</code></p><br><br><h3>特变电工新能源多赛道布局：从输变电到新能源的转型</h3><br><p>中药配方颗粒政策放开，中药板块集体走强。<br><br> | 来源：<code>https://xin91shipin.com.cn
+</code></p><br><br><h3>游资顶级席位联手买入中芯国际7亿，半导体龙头获热捧</h3><br><p>荣盛石化新材料业务拓展：炼化企业的第二增长曲线。<br><br> | 来源：<code>https://xing-daohang.cn
+</code></p><br><br><h3>赛力斯单日大涨8.3%，问界新车型销量引爆市场</h3><br><p>中国羽毛球队汤尤杯卫冕成功，继续保持世界顶尖水平。<br><br> | 来源：<code>https://xing-sheng-jiao.com.cn
+</code></p><br><br><h3>央行表态适时加大政策力度，后续降准降息仍有空间</h3><br><p>双汇发展肉制品盈利修复，前三季度业绩预增超20%。<br><br> | 来源：<code>https://xingbakeguanwang.cn
+</code></p><br><br><h3>MLCC价格单月上涨5%，电容龙头盈利弹性释放</h3><br><p>长三角一体化新规划落地，长三角本地股集体拉升。<br><br> | 来源：<code>https://xingbashequ.cn
+</code></p><br><br><h3>上海建工涨超2.9%，上海城市更新订单爆发</h3><br><p>全国羽毛球业余赛参赛人数破50万，民间高手层出不穷。<br><br> | 来源：<code>https://xingdaohang.cn
+</code></p><br><br><h3>工业大模型落地万座工厂，生产效率平均提升30%</h3><br><p>黄金价格创历史新高，黄金珠宝板块盈利弹性释放。<br><br> | 来源：<code>https://xingfu-bao.cn
+</code></p><br><br><h3>房地产市场新政落地，多地首套房贷款利率降至3.2%以下</h3><br><p>券商研究所扎堆调研算力租赁标的，机柜上架率突破95%。<br><br> | 来源：<code>https://xingfu-baodaohang.cn
+</code></p><br><br><h3>大股东耗资3.8亿增持钙钛矿设备标的，助力核心设备研发</h3><br><p>预制菜核心标的开启新股申购，B端渠道覆盖全国连锁餐饮。<br><br> | 来源：<code>https://xingfu-shenghuo.cn
