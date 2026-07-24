@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分21秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>北京国际铁人三项赛举办，吸引全球千名选手参赛</h3><br><p>保险资管扎堆调研养老产业标的，养老社区入住率数据披露。<br><br> | 来源：<code>https://geiliziyuanku.net.cn
+</code></p><br><br><h3>中国皮划艇队世锦赛斩获3金，静水项目优势持续扩大</h3><br><p>全国疫苗接种覆盖率保持99%以上，免疫规划覆盖所有适龄人群。<br><br> | 来源：<code>https://get-kaiyun-app.com.cn
+</code></p><br><br><h3>招商银行财富管理优势：零售银行龙头的第二增长曲线</h3><br><p>长城汽车品类创新能力：坦克+欧拉的产品差异化逻辑。<br><br> | 来源：<code>https://gnxzot.cn
+</code></p><br><br><h3>中兴通讯涨超4%，6G技术研发进度超市场预期</h3><br><p>降准资金定向支持三农，农业板块迎来流动性利好。<br><br> | 来源：<code>https://go-bb-sports.com.cn
+</code></p><br><br><h3>超230家机构到访工业软件龙头，研发设计软件付费转化率</h3><br><p>上半年全国城镇新增就业780万人，完成全年目标的70%。<br><br> | 来源：<code>https://go-caoliushequ.cn
+</code></p><br><br><h3>儿童用药扶持政策，儿科医药标的全线拉升</h3><br><p>全国农业面源污染治理成效显著，化肥使用量连续11年下降。<br><br> | 来源：<code>https://go-fuliji.com.cn
+</code></p><br><br><h3>泸州老窖国窖批价上调6%，区域白酒龙头盈利改善</h3><br><p>全国红树林面积增至3万公顷，成为海洋生态保护标杆。<br><br> | 来源：<code>https://go-hg-sports.com.cn
+</code></p><br><br><h3>磷酸铁锂价格连续上涨7%，动力电池材料环节回暖</h3><br><p>首套房贷款利率突破2.9%，刚需购房成本创历史新低。<br><br> | 来源：<code>https://go-jinmantiantang.com.cn
+</code></p><br><br><h3>白酒批价连续上涨，高端白酒板块盈利弹性释放</h3><br><p>机构专用席位净买入长电科技1.9亿，封测龙头获长线资金加仓。<br><br> | 来源：<code>https://go-jisu-sports.com.cn
+</code></p><br><br><h3>国内演出市场票房上半年突破200亿，演唱会经济爆发</h3><br><p>林业碳汇交易政策，林业运营标的全线异动。<br><br> | 来源：<code>https://go-kaiyun-hub.com.cn
+</code></p><br><br><h3>东方财富互联网券商生态：流量变现的长期成长逻辑</h3><br><p>中天科技海缆+储能协同：多元化能源企业的成长逻辑。<br><br> | 来源：<code>https://go-mitaoshipin.com.cn
+</code></p><br><br><h3>外资机构席位净买入双汇发展6400万，肉制品龙头获加仓</h3><br><p>医疗大模型通过三类医疗器械认证，辅助诊断准确率超98%。<br><br> | 来源：<code>https://go-mogushipin.com.cn
+</code></p><br><br><h3>全国青少年体育赛事覆盖所有项目，参赛人次突破千万</h3><br><p>比亚迪Q3销量破百万，业绩预告同比翻倍。<br><br> | 来源：<code>https://gongce-by-zhu-xiang-bi-qu-ge-zuixin-zhangjie.com.cn
+</code></p><br><br><h3>煤炭价格企稳回升8%，煤炭高股息标的盈利稳定</h3><br><p>产业资本集中增持AI教育龙头，付费用户高增获资本布局。<br><br> | 来源：<code>https://goutouluoli.com.cn
+</code></p><br><br><h3>卓胜微放量拉升5.7%，射频芯片行业景气度回升</h3><br><p>存储芯片价格连续上涨12%，存储板块迎来趋势性行情。<br><br> | 来源：<code>https://goutouluolishipin.com.cn
+</code></p><br><br><h3>降准释放长期资金支持基建，建筑板块迎来估值修复</h3><br><p>北京马拉松参赛人数突破3万，全球顶级赛事影响力持续扩大。<br><br> | 来源：<code>https://gpian.net.cn
+</code></p><br><br><h3>房地产融资白名单出台，优质房企板块走强</h3><br><p>闽南文化生态保护区建设成效显著，非遗活态传承活力迸发。<br><br> | 来源：<code>https://guess-worldcup-win.com
+</code></p><br><br><h3>全国城市篮球联赛举办，覆盖百城参赛队伍破万支</h3><br><p>沃森生物疫苗管线布局：创新疫苗龙头的研发投入回报。<br><br> | 来源：<code>https://guiruhougong.com.cn
+</code></p><br><br><h3>工业软件扶持政策出台，工业软件标的全线拉升</h3><br><p>国产音乐综艺全网播放量突破200亿，原创音乐人才涌现。<br><br> | 来源：<code>https://guo-mo-bai-lu.com.cn
+</code></p><br><br><h3>法律大模型上线，AI辅助律师办案效率提升2倍</h3><br><p>全国城市马拉松赛事数量突破1500场，覆盖所有省份。<br><br> | 来源：<code>https://guochan-chengren-dianying.com.cn
