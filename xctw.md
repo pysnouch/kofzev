@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 14时30分21秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中国水球队世锦赛闯入八强，水上集体项目进步显著</h3><br><p>中国女子自行车队世锦赛场地赛夺冠，实现金牌突破。<br><br> | 来源：<code>www.jiezhishan.cn
+</code></p><br><br><h3>吉林高速异动拉升1.7%，区域路网业务逐步复苏</h3><br><p>国企改革三年行动收官，央企营收同比增长6.8%。<br><br> | 来源：<code>www.qinjin365.cn
+</code></p><br><br><h3>包装纸价格上涨5%，包装板块成本端压力传导顺畅</h3><br><p>车载激光雷达企业登陆科创板，量产交付进度超市场预期。<br><br> | 来源：<code>www.siqiyes.cn
+</code></p><br><br><h3>东方财富用户粘性：互联网金融平台的流量沉淀逻辑</h3><br><p>小鹏汽车智能驾驶优势：新势力车企的技术差异化路径。<br><br> | 来源：<code>www.siqixue.cn
+</code></p><br><br><h3>糖果产品价格上调6%，休闲食品全产业链景气回升</h3><br><p>贵州茅台前三季度营收破千亿，业绩预告超预期。<br><br> | 来源：<code>www.cunyinbao.cn
+</code></p><br><br><h3>专精特新企业扶持政策，专精特新标的全线异动</h3><br><p>中国跆拳道队世锦赛斩获5金，金牌数位列奖牌榜第一。<br><br> | 来源：<code>www.iamz.cn
+</code></p><br><br><h3>百亿私募组团到访人形机器人标的，核心零部件产能引关注</h3><br><p>全国国民体质达标率达90%，国民身体素质稳步提升。<br><br> | 来源：<code>www.yifanwu.cn
+</code></p><br><br><h3>哪吒汽车涨超7.3%，下沉市场份额持续提升</h3><br><p>海洋强国建设新规划发布，海洋经济总量突破9万亿元。<br><br> | 来源：<code>www.michaelyang.cn
+</code></p><br><br><h3>隆基绿能成本优势解析：光伏龙头如何持续领跑行业</h3><br><p>鱼类产品价格上调10%，渔业板块迎来行情。<br><br> | 来源：<code>www.bengcuan.cn
+</code></p><br><br><h3>北向资金连续增持液冷技术龙头，AI数据中心需求获外资加仓</h3><br><p>钴价连续上涨13%，3C电池板块盈利提升。<br><br> | 来源：<code>www.zn-edu.cn
+</code></p><br><br><h3>全国马术赛事超百场，马术运动从小众走向大众</h3><br><p>社保基金现身镁合金龙头，汽车轻量化订单同比翻倍。<br><br> | 来源：<code>www.imrok.com.cn
+</code></p><br><br><h3>虚拟电厂政策试点扩容，电力信息化标的集体拉升</h3><br><p>俄乌冲突交换战俘达成协议，千名被俘人员获释。<br><br> | 来源：<code>www.shutaotc.cn
+</code></p><br><br><h3>泰胜风能涨超5.0%，海外风电塔架出口爆发</h3><br><p>实控人兜底式增持AI大模型标的，员工参与规模超预期。<br><br> | 来源：<code>www.easome.cn
+</code></p><br><br><h3>上半年全国机器人产量同比增长25%，智能制造加速推进</h3><br><p>全国工业企业利润同比增长8.7%，盈利水平持续修复。<br><br> | 来源：<code>www.toolzhe.cn
+</code></p><br><br><h3>北向资金连续5日加仓贵州茅台，持仓占比创历史新高</h3><br><p>全国健身气功交流大赛举办，覆盖超百万中老年爱好者。<br><br> | 来源：<code>www.silvertimes.cn
+</code></p><br><br><h3>知名私募调研低空飞行器标的，eVTOL适航认证进度披露</h3><br><p>全国太湖流域蓝藻水华防控成效显著，水质稳定达标。<br><br> | 来源：<code>www.ahhaiquan.cn
+</code></p><br><br><h3>全国癌症早筛项目覆盖所有地级市，早诊率提升至60%</h3><br><p>全国文化产业园区超3000家，集聚效应带动创意产业发展。<br><br> | 来源：<code>www.3excel.cn
+</code></p><br><br><h3>券商研究所扎堆调研车载芯片龙头，车规级认证进度超预期</h3><br><p>中芯国际晶圆制造国产替代：14nm及以下制程的突破路径。<br><br> | 来源：<code>www.81988888.cn
+</code></p><br><br><h3>鸿蒙生态持续升温：相关产业链标的受益顺序解析</h3><br><p>知名私募调研光伏N型电池标的，TOPCon电池转换效率突破26%。<br><br> | 来源：<code>zhongyichufang.cn
+</code></p><br><br><h3>全国PM2.5平均浓度同比下降8%，空气质量优良天数比率达87.5%</h3><br><p>全球债务规模突破320万亿美元，新兴市场债务风险可控。<br><br> | 来源：<code>muzhien.cn
