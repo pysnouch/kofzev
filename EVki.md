@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分53秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>大消费板块估值修复：白酒、家电、医药的布局机会对比</h3><br><p>美联储降息后大宗商品集体上涨，有色板块全线异动。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>实控人邀约收购中药创新药企业，溢价35%发起全面要约</h3><br><p>NBA季后赛中国球员首次夺冠，创造亚洲篮球历史。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>中航沈飞军机交付逻辑：军工整机龙头的长期成长空间</h3><br><p>中国男足晋级世界杯预选赛亚洲区18强，创造近年最佳战绩。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>招商银行沿20日均线上行，稳健标的的持仓节奏</h3><br><p>全国绿色供应链示范企业超千家，带动上下游产业低碳转型。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>量子通信标的启动申购，干线网络建设订单同比翻倍</h3><br><p>汽车大模型落地智能座舱，语音交互响应速度低于1秒。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>全国储能装机容量突破3亿千瓦，新型储能占比超60%</h3><br><p>长安汽车涨停封板，深蓝系列车型销量破万。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>牧原股份疫病防控能力：生猪养殖龙头的核心经营壁垒</h3><br><p>三一重工全球化布局：工程机械龙头的海外市场拓展。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>英伟达发布新一代AI芯片，算力板块再度走强</h3><br><p>济南趵突泉暑期“趵突腾空”景观持续，日均客流超10万。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>中国交建港口航道优势：全球港口建设龙头的核心壁垒</h3><br><p>人民币汇率升值至6.7关口，造纸板块汇兑收益大幅增加。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>国内大模型性能榜单更新，国产模型多项指标超越国际竞品</h3><br><p>海康威视W底形态确立，底部反转信号明确。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>水利工程建设规划，水利基建板块走强</h3><br><p>虚拟电厂政策试点扩容，电力信息化标的集体拉升。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>中国电竞战队斩获英雄联盟S14全球总决赛冠军</h3><br><p>牧原股份养殖成本下降，单季业绩预告环比扭亏。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>券商研究所扎堆调研算力租赁标的，机柜上架率突破95%</h3><br><p>存款利率连续下调，居民配置权益资产意愿持续增强。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>全国城市公共交通新能源化率达100%，零排放出行普及</h3><br><p>多氟多六氟磷酸锂布局：锂电材料细分龙头的周期成长。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>基金公司集体到访建筑光伏一体化标的，订单爆发式增长</h3><br><p>全国智慧健身器材普及至社区，运动数据实时上传健康平台。<br><br> | 来源：<code>www.jyylj.com
+</code></p><br><br><h3>上海斯诺克大师赛开幕，丁俊晖击败世界第一闯入四强</h3><br><p>体育产业消费刺激政策，体育消费标的全线异动。<br><br> | 来源：<code>www.chtea.ac.cn
+</code></p><br><br><h3>机构资金集中买入科大讯飞7亿，AI龙头获机构抱团</h3><br><p>洽洽食品坚果业务高增，前三季度业绩预增超30%。<br><br> | 来源：<code>www.idmcinc.com
+</code></p><br><br><h3>保险资管举牌机器人减速器标的，核心零部件获机构重仓</h3><br><p>保利发展涨超3.9%，央企地产销售数据回暖。<br><br> | 来源：<code>www.azi-cbt.com
+</code></p><br><br><h3>光伏玻璃价格单月上涨8%，玻璃龙头盈利弹性大幅释放</h3><br><p>宝钢股份产品结构升级：高端钢铁的盈利稳定性分析。<br><br> | 来源：<code>www.huihuabang.com
+</code></p><br><br><h3>北向资金连续增持医美耗材龙头，近2月持仓增幅超40%</h3><br><p>特变电工新能源盈利高增，单季业绩预告超预期。<br><br> | 来源：<code>www.jieruit.com
+</code></p><br><br><h3>央行下调SLF利率，货币政策宽松取向进一步明确</h3><br><p>国产现实题材电影票房占比超60%，贴近生活引发全民共鸣。<br><br> | 来源：<code>www.bjgengke.com
