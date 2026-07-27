@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分56秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>5年期LPR超预期下调，房企融资环境边际改善</h3><br><p>煤炭价格企稳回升8%，煤炭高股息标的盈利稳定。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>全国职业体育俱乐部数量超2000家，联赛体系覆盖全项目</h3><br><p>多地推出名校优生引进政策，博士落户直接发放20万安家补贴。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>国内露营装备市场规模破千亿，国产品牌占据90%市场份额</h3><br><p>外资资管集中调研中药配方颗粒标的，医院端渗透率超预期。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>大模型在农业病虫害防治领域应用，减少农药使用20%</h3><br><p>MCU芯片价格单月上涨8%，汽车半导体板块盈利改善。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>券商板块异动激活人气：行情回暖下的贝塔机会解析</h3><br><p>上海建工城市更新布局：上海本地基建龙头的区域优势。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>白银价格单月上涨12%，贵金属板块集体异动</h3><br><p>通威股份全产业链成本控制：光伏硅料环节的盈利韧性。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>游资知名席位联手买入登海种业5600万，种业标的获追捧</h3><br><p>长安汽车涨停封板，深蓝系列车型销量破万。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>机构资金联手买入晶澳科技7600万，组件龙头获机构抱团</h3><br><p>保利发展央企地产优势：融资成本与资源获取的双重优势。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>正泰电器户用光伏装机超预期，前三季度业绩预增超25%</h3><br><p>大模型在交通领域应用，城市拥堵率下降20%。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>沪股通席位单日买入华友钴业8100万，新能源金属标的增持</h3><br><p>养老金新进PCB龙头，布局AI服务器硬件赛道。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>全球5G用户突破30亿，中国市场占比超一半</h3><br><p>百亿私募组团调研生物育种标的，玉米种子推广面积超预期。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>登海种业玉米种子需求超预期，单季业绩预告超预期</h3><br><p>宝钢股份绿色低碳优势：钢铁行业碳中和下的领先地位。<br><br> | 来源：<code>www.jyylj.com
+</code></p><br><br><h3>AI实时翻译耳机普及，跨语言沟通障碍彻底打破</h3><br><p>保利发展央企销售高增，前三季度业绩预增超20%。<br><br> | 来源：<code>www.chtea.ac.cn
+</code></p><br><br><h3>绿电交易规模翻倍，绿电运营板块集体上涨</h3><br><p>二十国集团峰会召开，达成全球经济治理新共识。<br><br> | 来源：<code>www.idmcinc.com
+</code></p><br><br><h3>服务贸易创新发展试点，服务贸易板块集体上涨</h3><br><p>游资知名席位联手买入中际旭创5亿，光模块龙头获热炒。<br><br> | 来源：<code>www.azi-cbt.com
+</code></p><br><br><h3>游资知名席位联手买入赛力斯1.4亿，整车标的获资金追捧</h3><br><p>中国中铁一带一路订单落地，单季业绩预告超预期。<br><br> | 来源：<code>www.huihuabang.com
+</code></p><br><br><h3>医疗大模型通过三类医疗器械认证，辅助诊断准确率超98%</h3><br><p>大模型在餐饮领域应用，AI智能配菜优化食材利用率。<br><br> | 来源：<code>www.jieruit.com
+</code></p><br><br><h3>全国文旅市场监管加强，查处超千家违规经营旅行社</h3><br><p>大股东耗资3.8亿增持钙钛矿设备标的，助力核心设备研发。<br><br> | 来源：<code>www.bjgengke.com
+</code></p><br><br><h3>多晶硅价格连续上涨7%，光伏产业链价格体系企稳回升</h3><br><p>小康股份涨超7.7%，新能源汽车业务盈利修复。<br><br> | 来源：<code>www.kayhaerland.com
+</code></p><br><br><h3>浙江建投区域基建订单饱满，单季业绩预告超预期</h3><br><p>杭州西湖暑期日均客流超30万，智慧景区系统保障游览秩序。<br><br> | 来源：<code>www.gzly118.com
+</code></p><br><br><h3>超280家机构到访工业母机龙头，五轴机床量产进度超预期</h3><br><p>成渝双城经济圈建设三年成效显著，GDP总量突破8万亿元。<br><br> | 来源：<code>www.gntbz.cn
