@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月28日 01时30分25秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>南昌推出“红色夜校”文旅项目，夜间红色体验游受热捧</h3><br><p>全球氢能产业投资突破5000亿美元，商业化进程加速。<br><br> | 来源：<code>www.mmju.cn
+</code></p><br><br><h3>鸿蒙生态持续升温：相关产业链标的受益顺序解析</h3><br><p>料酒价格上涨4%，调味品细分板块迎来行情。<br><br> | 来源：<code>www.jbhn.cn
+</code></p><br><br><h3>北向资金大额扫货万华化学1.3亿，化工龙头获外资流入</h3><br><p>中国铁建异动拉升2.7%，海外项目落地加速。<br><br> | 来源：<code>www.pinlie.cn
+</code></p><br><br><h3>存款利率下调推动居民储蓄搬家，权益市场增量资金入场</h3><br><p>多模态大模型实现4K视频实时生成，10秒产出高清短视频。<br><br> | 来源：<code>www.ituijie.com
+</code></p><br><br><h3>厄尔尼诺现象加剧，农业抗旱标的全线走强</h3><br><p>大模型在铁路领域应用，调度系统安全性和效率双提升。<br><br> | 来源：<code>www.mc53.cn
+</code></p><br><br><h3>10年期国债收益率下行至2.5%以下，权益资产吸引力提升</h3><br><p>拉美多国签署货币互换协议，减少对美元依赖。<br><br> | 来源：<code>www.szhdly.com.cn
+</code></p><br><br><h3>美联储降息后美元指数走弱，大宗商品价格迎来反弹</h3><br><p>游资知名席位联手买入中际旭创5亿，光模块龙头获热炒。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>福耀玻璃异动拉升3.7%，汽车玻璃出口数据亮眼</h3><br><p>辽宁高速涨超1.6%，东北基建带动车流量增长。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>产业资本集中增持AI教育龙头，付费用户高增获资本布局</h3><br><p>特变电工涨超3.3%，新能源业务盈利持续释放。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>实控人邀约收购光刻胶标的，溢价40%发起部分要约收购</h3><br><p>承德避暑山庄暑期日均客流超6万，皇家文旅体验受追捧。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>海外对冲基金组团调研预制菜龙头，B端渠道扩张节奏披露</h3><br><p>金龙汽车海外客车出口：客车行业龙头的海外拓展逻辑。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>贵州茅台近5年财务复盘：高毛利背后的盈利稳定性逻辑</h3><br><p>正邦科技放量上涨4.5%，债务重组进展顺利。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>晶澳科技全球化运营：光伏组件龙头的海外市场份额扩张</h3><br><p>全国重点海域入海排污口整治完成，海洋污染源头管控加强。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>AI应用落地加速：办公、安防、教育的商业化机会</h3><br><p>大模型在文创领域应用，AI生成剧本、音乐成行业常态。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>北向资金单日买入福耀玻璃7200万，玻璃龙头获外资持续流入</h3><br><p>全国中华白海豚种群数量突破5000头，近海生态持续改善。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>5年期LPR下调带动房企开发贷利率下行，房企盈利改善</h3><br><p>三安光电涨超4.2%，LED芯片需求边际改善。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>券商研究所扎堆调研数字人民币标的，线下场景覆盖突破亿级</h3><br><p>杭州亚运会一周年纪念活动举办，场馆全年接待健身人次破亿。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>三一重工数字化转型：工程机械龙头的效率提升路径</h3><br><p>钠离子电池材料价格上涨8%，钠电池产业链盈利优化。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>液态奶价格上涨3%，乳制品板块迎来涨价催化</h3><br><p>存量房贷利率集中下调，居民消费能力有望边际改善。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>汽车一体化压铸企业启动申购，9000T压铸机产能全球领先</h3><br><p>机构+北向合力买入北方稀土2.7亿，稀土标的获资金布局。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>广汽集团埃安盈利转正，前三季度业绩预增超45%</h3><br><p>房贷利率动态调整机制优化，重点城市房贷利率进一步下行。<br><br> | 来源：<code>www.jogosdefutebol10.com
