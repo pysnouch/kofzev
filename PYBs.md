@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分19秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>阳光电源涨超7%，逆变器海外订单持续超预期</h3><br><p>白银价格单月上涨12%，贵金属板块集体异动。<br><br> | 来源：<code>https://caoliuduanshipin.cn
+</code></p><br><br><h3>国内多模态大模型实现3D场景实时渲染，元宇宙体验升级</h3><br><p>长城国家文化公园建设完工，沿线游览步道贯通超万公里。<br><br> | 来源：<code>https://caoliuerweima.cn
+</code></p><br><br><h3>外资机构席位净买入先导智能8600万，锂电设备龙头加仓</h3><br><p>璞泰来负极材料布局：锂电材料龙头的全产业链协同。<br><br> | 来源：<code>https://caoliuhuijiadelu.cn
+</code></p><br><br><h3>内蒙古草原暑期游火爆，那达慕大会吸引超百万游客参与</h3><br><p>张家界暑期接待人次破2000万，山地游产品持续热销。<br><br> | 来源：<code>https://caoliujishutaolunqu.cn
+</code></p><br><br><h3>上半年全国文化产业营收同比增长14%，文旅融合加速</h3><br><p>新希望异动拉升3.9%，生猪出栏量持续高增。<br><br> | 来源：<code>https://caoliushe-qu.cn
+</code></p><br><br><h3>车联网安全标准出台，车联网板块集体上涨</h3><br><p>核聚变实验装置获重大进展，可控核聚变标的异动。<br><br> | 来源：<code>https://caoliushe.cn
+</code></p><br><br><h3>国内大模型评测标准发布，统一行业能力评估体系</h3><br><p>保险资管连续增持AI安防龙头，海外订单高增获机构认可。<br><br> | 来源：<code>https://caoliushequ.org.cn
+</code></p><br><br><h3>美的集团创年内新高，海外家电收入增速超20%</h3><br><p>不要盲目跟风炒热点：大部分追高的资金，最后都会成为接盘侠。<br><br> | 来源：<code>https://caoliushequdizhi.cn
+</code></p><br><br><h3>全国地下水超采综合治理成效显著，水位回升超2米</h3><br><p>首套房贷款利率动态调整，核心城市刚需购房成本创新低。<br><br> | 来源：<code>https://caoliushequguanwang.cn
+</code></p><br><br><h3>武汉马拉松开跑，2.5万跑者穿越长江大桥刷新赛事纪录</h3><br><p>洽洽食品坚果品类拓展：传统炒货企业的成长第二曲线。<br><br> | 来源：<code>https://caoliushequjishutaolunqu.cn
+</code></p><br><br><h3>锌价突破2.8万元/吨，锌业上市公司盈利弹性释放</h3><br><p>中俄双边贸易额上半年突破1200亿美元，创历史新高。<br><br> | 来源：<code>https://caoliushequrukou.cn
+</code></p><br><br><h3>张家界暑期游客量突破300万人次，山岳旅游热度攀升</h3><br><p>黄山暑期游客量突破250万人次，山岳景区预约制度优化体验。<br><br> | 来源：<code>https://caoliushequwangzhi.cn
+</code></p><br><br><h3>国内大模型集中落地，AI办公标的迎来估值修复</h3><br><p>北汽蓝谷异动拉升5.3%，极狐品牌销量边际改善。<br><br> | 来源：<code>https://caoliushequxinzhizuixinxiaoxi.cn
+</code></p><br><br><h3>洋河股份异动拉升4.0%，梦之蓝系列动销超预期</h3><br><p>QFII新进汽车芯片标的，MCU国产替代获海外机构看好。<br><br> | 来源：<code>https://caoliushequyaoqingma.cn
+</code></p><br><br><h3>降准释放资金补充银行流动性，信贷投放能力显著提升</h3><br><p>5年期LPR下调15BP，地产链估值修复行情延续。<br><br> | 来源：<code>https://caoliushequzaixianguankan.cn
+</code></p><br><br><h3>多地发放消费券超200亿元，撬动社会消费超千亿元</h3><br><p>宁德时代客户结构优势：全球主流车企的深度绑定逻辑。<br><br> | 来源：<code>https://caoliushequzuixin.cn
+</code></p><br><br><h3>正泰电器放量上涨3.7%，户用光伏装机量领先</h3><br><p>机构资金集中买入航发动力1.8亿，军工龙头获机构抱团。<br><br> | 来源：<code>https://caoliushequzuixindizhi.cn
+</code></p><br><br><h3>新疆暑期游订单破5000万，独库公路日均通车量超2万辆</h3><br><p>大模型在餐饮领域应用，AI智能配菜优化食材利用率。<br><br> | 来源：<code>https://caoliushequzuixinwangzhi.cn
+</code></p><br><br><h3>机构专用席位净买入长电科技1.9亿，封测龙头获长线资金加仓</h3><br><p>赛力斯单日大涨8.3%，问界新车型销量引爆市场。<br><br> | 来源：<code>https://caoliushipin.cn
+</code></p><br><br><h3>冷链物流扶持政策，冷链物流板块集体上涨</h3><br><p>机构+北向资金合力买入比亚迪9亿，整车龙头获资金认可。<br><br> | 来源：<code>https://caoliuxinshidai.cn
