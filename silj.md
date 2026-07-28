@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分43秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中际旭创再创阶段新高，趋势加速下的持仓策略</h3><br><p>产业基金组团调研后集中增持光模块企业，合计投入超10亿。<br><br> | 来源：<code>https://kaiyun-qipai-go.com.cn
+</code></p><br><br><h3>公募基金集中调研智慧交通标的，车路协同项目落地节奏</h3><br><p>华域汽车涨超3.9%，汽车零部件龙头业绩超预期。<br><br> | 来源：<code>https://kaiyun-sports-auth.com.cn
+</code></p><br><br><h3>需求侧响应政策落地，电力营销板块集体上涨</h3><br><p>国内政策性降息落地，宽信用进程加速推进。<br><br> | 来源：<code>https://kaiyun-sports-net.com.cn
+</code></p><br><br><h3>降准降息组合利好地产链，建材板块迎来估值修复</h3><br><p>三元正极材料价格上调6%，锂电材料产业链景气回升。<br><br> | 来源：<code>https://kaiyun-sports-page.com.cn
+</code></p><br><br><h3>储能电池价格小幅上涨3%，储能产业链价格体系企稳</h3><br><p>养老金新进AI芯片设计标的，布局大模型推理芯片赛道。<br><br> | 来源：<code>https://kaiyun-sports-plat.com.cn
+</code></p><br><br><h3>全国会展经济快速复苏，上半年展览场次同比增长45%</h3><br><p>种业振兴行动方案落地，种业标的全线异动。<br><br> | 来源：<code>https://kaiyun-tiyu-go.com.cn
+</code></p><br><br><h3>央行降准降息组合拳落地，A股市场迎来全面估值修复</h3><br><p>头部机构组团到访风电轴承龙头，大兆瓦轴承市占率提升。<br><br> | 来源：<code>https://kaiyun-tiyu-hq.com.cn
+</code></p><br><br><h3>中国乒乓球队包揽世乒赛全部金牌，统治力延续数十年</h3><br><p>国务院出台6方面24条政策，进一步扩大对外开放。<br><br> | 来源：<code>https://kaiyun-tiyu-pro.com.cn
+</code></p><br><br><h3>美的集团全球化运营：家电龙头的海外市场拓展路径</h3><br><p>中东产油国延长减产协议，国际油价维持温和上涨态势。<br><br> | 来源：<code>https://kaiyun-url-vip.com.cn
+</code></p><br><br><h3>外资资管举牌消费电子龙头，苹果产业链获外资持续加仓</h3><br><p>小鹏汽车智能驾驶优势：新势力车企的技术差异化路径。<br><br> | 来源：<code>https://kaiyuncom-vip.com.cn
+</code></p><br><br><h3>全国博物馆总数突破6500家，年接待观众超12亿人次</h3><br><p>宁德时代跳空高开6.4%，麒麟电池商业化落地加速。<br><br> | 来源：<code>https://kaiyunqiumi.com.cn
+</code></p><br><br><h3>江铃汽车异动拉升4.2%，轻卡新能源化加速</h3><br><p>钢材价格单月上涨7%，钢铁板块迎来产品涨价催化。<br><br> | 来源：<code>https://kan-pian-wangzhan.com.cn
+</code></p><br><br><h3>周期品沿趋势上行：黄金、有色、钢铁的业绩弹性对比</h3><br><p>企业贷款利率创历史新低，制造业投资意愿有望回升。<br><br> | 来源：<code>https://kan-pianwangzhan.com.cn
+</code></p><br><br><h3>游资顶级席位联手买入中芯国际7亿，半导体龙头获热捧</h3><br><p>拉美多国签署货币互换协议，减少对美元依赖。<br><br> | 来源：<code>https://kanpian-wangzhan.com.cn
+</code></p><br><br><h3>房贷利率下限进一步放宽，刚需购房成本大幅下降</h3><br><p>东方财富获机构席位净买入4.2亿，互联网券商获资金加仓。<br><br> | 来源：<code>https://kanpianwang.com.cn
+</code></p><br><br><h3>商业航天准入政策放宽，商业航天标的异动</h3><br><p>北向资金大额扫货安琪酵母5500万，酵母龙头获外资流入。<br><br> | 来源：<code>https://kanpianwangzhan.com.cn
+</code></p><br><br><h3>海康威视海外市场拓展：AI安防产品的全球份额提升</h3><br><p>京沪高铁涨超2.9%，暑运客流数据超预期。<br><br> | 来源：<code>https://keai-xiaoshuo.com.cn
+</code></p><br><br><h3>全球新材料市场规模突破5万亿美元，支撑高端制造发展</h3><br><p>5年期以上LPR大幅下调20BP，地产链板块全线异动。<br><br> | 来源：<code>https://kuai-maoapp.cn
+</code></p><br><br><h3>多氟多六氟磷酸锂布局：锂电材料细分龙头的周期成长</h3><br><p>明阳智能涨超4.8%，大兆瓦风机份额持续提升。<br><br> | 来源：<code>https://kuai-maoduanshipin.com.cn
+</code></p><br><br><h3>三星堆博物馆新馆全面开放，单日最大接待量突破5万人次</h3><br><p>钢材价格单月上涨7%，钢铁板块迎来产品涨价催化。<br><br> | 来源：<code>https://kuai-maoshipin.cn
