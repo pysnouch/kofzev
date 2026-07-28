@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分41秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>粤高速A异动拉升2.6%，大湾区车流量高增</h3><br><p>洋河股份梦之蓝品牌升级：次高端赛道的份额扩张逻辑。<br><br> | 来源：<code>https://aiqingdaoyazhou.org.cn
+</code></p><br><br><h3>大模型开源社区活跃，国产开源大模型数量破300款</h3><br><p>海外资管组团调研智能驾驶标的，城市NOA落地节奏披露。<br><br> | 来源：<code>https://aiqingdaoyazhouluntan.org.cn
+</code></p><br><br><h3>AI智能客服替代率超80%，企业客服成本下降60%</h3><br><p>国内露营装备市场规模破千亿，国产品牌占据90%市场份额。<br><br> | 来源：<code>https://aiqingdaoyiluntanmianfeiluxian.org.cn
+</code></p><br><br><h3>中东产油国延长减产协议，国际油价维持温和上涨态势</h3><br><p>全国农业面源污染治理成效显著，化肥使用量连续11年下降。<br><br> | 来源：<code>https://aiqingdaoyongjiuyuming.org.cn
+</code></p><br><br><h3>千禾味业放量上涨4.3%，零添加产品份额持续提升</h3><br><p>啤酒开启新一轮涨价潮，啤酒板块盈利弹性释放。<br><br> | 来源：<code>https://aiqingdaoyuming.org.cn
+</code></p><br><br><h3>长安汽车放量上涨4.9%，深蓝品牌月销破3万</h3><br><p>QFII集中调研海上风电标的，深远海项目订单引热议。<br><br> | 来源：<code>https://aiqingdaozaixian.org.cn
+</code></p><br><br><h3>芯片价格开启涨价潮，半导体板块盈利迎来修复</h3><br><p>短视频文旅内容播放量上半年突破5万亿次，种草效应带动目的地流量。<br><br> | 来源：<code>https://aiqingdaozaixianguankan.org.cn
+</code></p><br><br><h3>极端暴雨灾害预警，水利基建标的全线上涨</h3><br><p>保险资管扎堆调研绿电运营标的，电价弹性空间引热议。<br><br> | 来源：<code>https://aiqingdaozaixianluntan.org.cn
+</code></p><br><br><h3>中国男子跳高选手跳出2米40，打破尘封28年全国纪录</h3><br><p>广州珠江夜游暑期航班加密，日均接待游客超5万人次。<br><br> | 来源：<code>https://aiqingdaozuixinyuming.org.cn
+</code></p><br><br><h3>美联储降息周期开启，北向资金单周净流入超300亿</h3><br><p>铜价创半年新高，铜业上市公司盈利迎来边际改善。<br><br> | 来源：<code>https://aiweinaiwang.com.cn
+</code></p><br><br><h3>外资单日扫货招商银行10亿，银行龙头外资持仓稳步提升</h3><br><p>多地优化楼市限购政策，取消二环外住房限购限制。<br><br> | 来源：<code>https://aiyeapp.cn
+</code></p><br><br><h3>机构席位大额买入澜起科技8500万，内存芯片龙头获布局</h3><br><p>成都马拉松开跑，赛道串联城市核心景点成网红赛事。<br><br> | 来源：<code>https://aiyeapp.net.cn
+</code></p><br><br><h3>中际旭创光模块技术优势：全球数通市场的份额扩张</h3><br><p>生活用纸价格上调4%，生活用纸龙头盈利提升。<br><br> | 来源：<code>https://aiyeguanfangrukou.net.cn
+</code></p><br><br><h3>全国消费促进月活动启动，覆盖超百万商家拉动暑期消费</h3><br><p>QFII新进汽车芯片标的，MCU国产替代获海外机构看好。<br><br> | 来源：<code>https://aiyeguanwang.net.cn
+</code></p><br><br><h3>交控科技异动拉升4.5%，城轨信号系统订单爆发</h3><br><p>大湾区推出100条跨境文旅线路，港澳居民赴内地游热度飙升。<br><br> | 来源：<code>https://aiyeshipin.com.cn
+</code></p><br><br><h3>实控人溢价25%增持电力现货交易标的，传递价值低估信号</h3><br><p>海外对冲基金组团调研广告营销龙头，AI营销订单同比大增。<br><br> | 来源：<code>https://aiyeshipin.net.cn
+</code></p><br><br><h3>全球无人机市场规模突破1500亿美元，行业应用爆发</h3><br><p>降准资金定向支持三农，农业板块迎来流动性利好。<br><br> | 来源：<code>https://aiyeshipinapp.net.cn
+</code></p><br><br><h3>中兴通讯算力布局：从通信设备到算力基础设施的拓展</h3><br><p>云从科技人机协同大模型3.0发布，赋能人机交互场景。<br><br> | 来源：<code>https://aiyeshipinguanwang.net.cn
+</code></p><br><br><h3>当升科技正极材料海外布局：高镍正极的全球份额扩张</h3><br><p>中国铁建全球工程布局：轨交基建龙头的海外市场拓展。<br><br> | 来源：<code>https://aiyeshipinwangzhan.net.cn
+</code></p><br><br><h3>2026年上半年GDP同比增长5.8%，经济复苏动能持续增强</h3><br><p>暑期国内游人次突破18亿，跨省长线游订单同比暴涨120%。<br><br> | 来源：<code>https://aiyeshipinxiazai.net.cn
